@@ -4,16 +4,13 @@
 
 # Basic
 name:               "Ruhee Dewji"
-description:        "a clean, lightweight and minimalistic blog theme for jekyll"
+description:        "A blog."
 
 # jekyll-seo-tag, see: http://www.rubydoc.info/gems/jekyll-seo-tag/1.2.0
-url:                "//kiko.gfjaru.com"
-author:             "gfjaru"
+url:                "//ruheedewji.com"
+author:             "Ruhee Dewji"
 twitter:
-  username:         "gfjaru"
-#facebook:
-#  app_id:           1234
-#    publisher:      1234
+  username:         "ruhee_"
 
 # URL
 baseurl:            ""
