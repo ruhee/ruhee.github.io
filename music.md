@@ -43,6 +43,9 @@ Currently playing sax and keyboards with [Good Enough Live Karaoke](http://goode
 
 #### Others
 - 2017: Cedarstrip Rocketship - [Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
+- 2011: The Natural Shocks - Complete With Comfortable Lighting (vocals)
+- 2010: Dr Ew - [Gadzooks](https://doctor-ew.bandcamp.com/) (tenor sax)
+- 2009: Gravity Wave - [Gambol](https://gravity-wave.bandcamp.com/album/gambol) (tenor sax)
 - 2008: The Dropjoys (flute)
 - 2008: The Bicycles - [Oh No! It's Love!](https://thebicycles.bandcamp.com/album/oh-no-its-love) (tenor sax)
 - 2007: Brian Joseph Davis - The Definitive Host (vocals) ([download "Eula"](https://brianjosephdavis.wordpress.com/downloads/))
