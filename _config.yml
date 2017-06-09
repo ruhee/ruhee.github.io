@@ -24,6 +24,8 @@ markdown:           kramdown
 nav:
   - name:           "About"
     href:           "/about"
+  - name:           "Music"
+    href:           "/music"
 
 # Sass
 sass:
