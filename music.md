@@ -3,24 +3,26 @@ title: Music
 permalink: /music/
 ---
 
-Currently playing sax and keyboards with [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) all over the GTA, as well as in a few nascent projects. 
+Currently playing sax and keyboards with [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) all over the GTA, as well as in a few nascent projects.
+
+Previous work:
 
 ### In performance
 
-- Entire Cities
-- Del Bel
-- The Weather Station
-- Bry Webb
-- Henri Fabergé and The Adorables
-- The Bicycles
-- The Rural Alberta Advantage
-- Maylee Todd
-- Jason Doell
+- [Entire Cities](http://entirecities.bandcamp.com)
+- [Del Bel](http://www.delbelmusic.com)
+- [Bry Webb](http://brywebb.com)
+- [The Weather Station](http://theweatherstation.bandcamp.com)
+- [Henri Fabergé and The Adorables](https://en.wikipedia.org/wiki/Henri_Faberg%C3%A9_and_the_Adorables)
+- [The Bicycles](http://thebicycles.bandcamp.com)
+- [The Rural Alberta Advantage](http://theraa.com)
+- [Maylee Todd](http://www.mayleetodd.com)
+- [Jason Doell](http://www.jasondoell.com)
 - Nich Worby
-- Chrome & The Ice Queen
+- [Chrome & The Ice Queen](https://chromeandtheicequeen.bandcamp.com/)
 - XLNS (an INXS tribute)
-- Basement Arms
-- Cedarstrip Rocketship
+- [Basement Arms](https://myspace.com/basementarms/music/songs)
+- [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/releases)
 - Clarinet Panic
 - Andrew Ennals & His Checkered Past
 - The Natural Shocks
@@ -46,7 +48,7 @@ Currently playing sax and keyboards with [Good Enough Live Karaoke](http://goode
 - 2011: The Natural Shocks - Complete With Comfortable Lighting (vocals)
 - 2010: Dr Ew - [Gadzooks](https://doctor-ew.bandcamp.com/) (tenor sax)
 - 2009: Gravity Wave - [Gambol](https://gravity-wave.bandcamp.com/album/gambol) (tenor sax)
-- 2008: The Dropjoys (flute)
+- 2009: The Dropjoys - The Dropjoys (flute)
 - 2008: The Bicycles - [Oh No! It's Love!](https://thebicycles.bandcamp.com/album/oh-no-its-love) (tenor sax)
 - 2007: Brian Joseph Davis - The Definitive Host (vocals) ([download "Eula"](https://brianjosephdavis.wordpress.com/downloads/))
 - Coming soon: The Lake Vernon Drowning (flute)
