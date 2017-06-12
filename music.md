@@ -52,5 +52,6 @@ Previous work:
 - 2009: Gravity Wave - [Gambol](https://gravity-wave.bandcamp.com/album/gambol) (tenor sax)
 - 2009: The Dropjoys - The Dropjoys (flute)
 - 2008: The Bicycles - [Oh No! It's Love!](https://thebicycles.bandcamp.com/album/oh-no-its-love) (tenor sax)
+- 2008: Dwight Schenk - Natural Disasters (flute)
 - 2007: Brian Joseph Davis - The Definitive Host (vocals) ([download "Eula"](https://brianjosephdavis.wordpress.com/downloads/))
 - Coming soon: The Lake Vernon Drowning (flute)

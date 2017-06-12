@@ -104,6 +104,10 @@ ol {
 
   li {
     margin-bottom: .25rem;
+
+    p:first-of-type {
+      margin-top: 1rem;
+    }
   }
 
   ul,
