@@ -54,4 +54,3 @@ Previous work:
 - 2008: Dwight Schenk - [Natural Disasters](https://www.youtube.com/playlist?list=PLpMW5dPK8c5JqHsxJhwAazL-156qhPa78) (flute, vocals)
 - 2008: The Bicycles - [Oh No! It's Love!](https://thebicycles.bandcamp.com/album/oh-no-its-love) (tenor sax)
 - 2007: Brian Joseph Davis - The Definitive Host (vocals) ([download "Eula"](https://brianjosephdavis.wordpress.com/downloads/))
-- Coming soon: The Lake Vernon Drowning (flute)
