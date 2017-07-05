@@ -46,6 +46,7 @@ Previous work:
 - 2011: [Oneiric](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
+- 2017: Andrew James Barker - Gunslinger (flute) _(coming in October)_
 - 2017: Cedarstrip Rocketship - [Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
 - 2011: The Natural Shocks - Complete With Comfortable Lighting (vocals)
 - 2010: Dr Ew - [Gadzooks](https://doctor-ew.bandcamp.com/) (tenor sax)
