@@ -5,7 +5,10 @@ permalink: /music/
 
 ![Del Bel at the APK]({{ site.url }}/assets/apk.jpg)
 
-Currently playing sax and keyboards with [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) all over the GTA, as well as in a few nascent projects.
+Currently:
+- [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) (sax, keyboards, vocals)
+- Shrinehouse, an Amy Winehouse tribute project (sax, flute)
+- A nascent loud rock band (vocals, lead guitar)
 
 Previous work:
 
