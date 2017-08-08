@@ -6,9 +6,9 @@ permalink: /music/
 ![Del Bel at the APK]({{ site.url }}/assets/apk.jpg)
 
 Currently:
-- [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) (sax, keyboards, vocals)
-- Shrinehouse, an Amy Winehouse tribute project (sax, flute)
-- A nascent loud rock band (vocals, lead guitar)
+- [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) (tenor sax, keyboards, vocals, guitar)
+- Shrinehouse, an Amy Winehouse tribute project (tenor sax, flute)
+- [Weak Hands](http://twitter.com/weakhandsband), a nascent loud punk band (vocals, lead guitar)
 
 Previous work:
 
