@@ -11,7 +11,7 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 * September 9: GELK @ Mongrel Media TIFF party
 * September 11: GELK @ Drake Hotel (front lounge)
 * September 13: [GELK @ TWG (ElevateTO)](https://www.facebook.com/events/280621905754305/)
-* September 24: World premiere of _Boozhoo Manoomin_, a suite by Beverley McKiver for piano, flute and viola, at Convocation Hall. ([details](https://www.eventbrite.ca/e/water-is-life-but-many-cant-drink-it-tickets-36657481514))
+* September 24: [World premiere of _Boozhoo Manoomin_](https://www.eventbrite.ca/e/water-is-life-but-many-cant-drink-it-tickets-36657481514), a suite by Beverley McKiver for piano, flute and viola @ Convocation Hall (University of Toronto)
 * September 26: GELK @ Drake Hotel (front lounge)
 * September 28: GELK Motown @ Supermarket
 
