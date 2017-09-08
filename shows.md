@@ -6,7 +6,6 @@ permalink: /shows/
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
 ### September
-* September 7: [GELK  @ The Rec Room](https://www.facebook.com/events/883874838438071/887383831420505)
 * September 8: GELK @ Mongrel Media TIFF party
 * September 9: GELK @ Mongrel Media TIFF party
 * September 11: GELK @ Drake Hotel (front lounge)
