@@ -6,7 +6,6 @@ permalink: /shows/
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
 ### September
-* September 13: [GELK @ TWG (ElevateTO)](https://www.facebook.com/events/280621905754305/)
 * September 24: [World premiere of _Boozhoo Manoomin_](https://www.eventbrite.ca/e/water-is-life-but-many-cant-drink-it-tickets-36657481514), a suite by Beverley McKiver for piano, flute and viola @ Convocation Hall (University of Toronto)
 * September 28: GELK Motown @ Supermarket
 
@@ -21,6 +20,7 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 
 ## Past shows 2017
 
+* September 13: [GELK @ TWG (ElevateTO)](https://www.facebook.com/events/280621905754305/)
 * September 11: GELK @ Drake Hotel (front lounge)
 * September 9: GELK @ Campbell House (Mongrel Media TIFF party)
 * September 8: GELK @ Campbell House (Mongrel Media TIFF party)
