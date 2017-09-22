@@ -7,11 +7,11 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 
 ### September
 * September 24: [World premiere of _Boozhoo Manoomin_](https://www.eventbrite.ca/e/water-is-life-but-many-cant-drink-it-tickets-36657481514), a suite by Beverley McKiver for piano, flute and viola @ Convocation Hall (University of Toronto)
-* September 28: GELK Motown @ Supermarket
+* September 28: [GELK Motown @ Supermarket](https://www.facebook.com/events/1725909931048409/)
 
 ### October
 * October 13: [Shrinehouse (Amy Winehouse tribute) @ C'est What](https://www.facebook.com/events/106617316689557/)
-* October 21: Andrew Barker _Gunslinger_ album release @ Gerrard Art Space
+* October 21: [Andrew Barker _Gunslinger_ album release](https://www.facebook.com/events/515342205468153/) @ Gerrard Art Space
 
 ### November
 * November 22: XLNS (INXS tribute) @ The Piston
@@ -25,24 +25,24 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 * September 11: GELK @ Drake Hotel (front lounge)
 * September 9: GELK @ Campbell House (Mongrel Media TIFF party)
 * September 8: GELK @ Campbell House (Mongrel Media TIFF party)
-* September 7: GELK @ The Rec Room
+* September 7: [GELK @ The Rec Room](https://www.facebook.com/events/883874838438071/)
 
 #### August
-* August 30: GELK @ Stop Drop & Roll
+* August 30: [GELK @ Stop Drop & Roll](https://www.facebook.com/events/1415003451929127/)
 * August 25: GELK Motown @ Broadview Hotel
-* August 19: GELK @ Big Feastival Canada
+* August 19: [GELK @ Big Feastival Canada](http://canada.thebigfeastival.com/)
 * August 18: GELK @ Doogie's (Guelph)
-* August 12: GELK @ Gladstone Hotel (Melody Bar)
+* August 12: [GELK @ Gladstone Hotel (Melody Bar)](https://www.facebook.com/events/1206710286095410/)
 * August 4: GELK @ Queens Bar (Port Elgin)
 
 #### July
-* July 15: GELK @ Harbourfront Centre
-* July 14: GELK Motown @ Junction City Music Hall
-* July 13: GELK @ Gladstone Hotel (Ballroom)
+* July 15: [GELK @ Harbourfront Centre](https://www.facebook.com/events/1497115130319514/)
+* July 14: [GELK Motown @ Junction City Music Hall](https://www.facebook.com/events/429671124079880/)
+* July 13: [GELK @ Gladstone Hotel (Ballroom)](https://www.facebook.com/events/855293774621555/)
 
 #### June
 * June 29: GELK @ Yankee Lady IV
-* June 9: Shrinehouse @ Dakota Tavern
+* June 9: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1658142344495124/)
 * June 7: GELK Punk @ Baby G
 
 #### May
