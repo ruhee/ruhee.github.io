@@ -7,7 +7,7 @@ permalink: /music/
 
 Currently:
 - [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) (tenor sax, keyboards, vocals, guitar)
-- Shrinehouse, an Amy Winehouse tribute project (tenor sax, flute)
+- [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
 - [Weak Hands](http://twitter.com/weakhandsband), a nascent loud punk band (vocals, lead guitar)
 
 Previous work:
@@ -51,6 +51,7 @@ Previous work:
 #### Others
 - 2017: Germaphobes full-length _(coming soon)_
 - 2017: Andrew James Barker - Gunslinger (flute) _(coming in October)_
+- 2017: Towards the Forest - [Moon Summer](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
 - 2017: Cedarstrip Rocketship - [Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
 - 2011: The Natural Shocks - Complete With Comfortable Lighting (vocals)
 - 2010: Dr Ew - [Gadzooks](https://doctor-ew.bandcamp.com/) (tenor sax)
