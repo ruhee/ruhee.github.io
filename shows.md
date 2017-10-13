@@ -5,8 +5,6 @@ permalink: /shows/
 
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
-### September
-
 ### October
 * October 13: [Shrinehouse (Amy Winehouse tribute) @ C'est What](https://www.facebook.com/events/106617316689557/)
 * October 21: [Andrew Barker _Gunslinger_ album release](https://www.facebook.com/events/515342205468153/) @ Gerrard Art Space
