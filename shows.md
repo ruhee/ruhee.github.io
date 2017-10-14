@@ -6,8 +6,7 @@ permalink: /shows/
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
 ### October
-* October 13: [Shrinehouse (Amy Winehouse tribute) @ C'est What](https://www.facebook.com/events/106617316689557/)
-* October 21: [Andrew Barker _Gunslinger_ album release](https://www.facebook.com/events/515342205468153/) @ Gerrard Art Space
+* October 21: [Andrew James Barker _Gunslinger_ album release @ Gerrard Art Space](https://www.facebook.com/events/515342205468153/)
 
 ### November
 * November 22: XLNS (INXS tribute) @ The Piston
@@ -15,6 +14,9 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 * November 30: GELK @ Private event
 
 ## Past shows 2017
+
+#### October
+* October 13: [Shrinehouse (Amy Winehouse tribute) @ C'est What](https://www.facebook.com/events/106617316689557/)
 
 #### September
 * September 28: [GELK Motown @ Supermarket](https://www.facebook.com/events/1725909931048409/)
