@@ -9,7 +9,6 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 * October 21: [Andrew James Barker _Gunslinger_ album release @ Gerrard Art Space](https://www.facebook.com/events/515342205468153/)
 
 ### November
-* November 22: XLNS (INXS tribute) @ The Piston
 * November 25: Shrinehouse @ Dakota Tavern
 * November 30: GELK @ Private event
 
