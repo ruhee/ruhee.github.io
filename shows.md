@@ -5,16 +5,18 @@ permalink: /shows/
 
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
-### October
-* October 21: [Andrew James Barker _Gunslinger_ album release @ Gerrard Art Space](https://www.facebook.com/events/515342205468153/)
-
 ### November
 * November 25: Shrinehouse @ Dakota Tavern
 * November 30: GELK @ Private event
 
+### December
+* December 2: [GELK 4-year anniversary party!](https://www.facebook.com/events/152008035399327/) @ Junction City Music Hall
+* December 23: Shrinehouse @ Junction City Music Hall
+
 ## Past shows 2017
 
 #### October
+* October 21: [Andrew James Barker _Gunslinger_ album release @ Gerrard Art Space](https://www.facebook.com/events/515342205468153/)
 * October 13: [Shrinehouse (Amy Winehouse tribute) @ C'est What](https://www.facebook.com/events/106617316689557/)
 
 #### September
