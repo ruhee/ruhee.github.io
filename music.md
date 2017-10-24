@@ -50,7 +50,7 @@ Previous work:
 
 #### Others
 - 2017: Germaphobes full-length _(coming soon)_
-- 2017: Andrew James Barker - Gunslinger (flute) _(October 24)_
+- 2017: Andrew James Barker - [Gunslinger](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 - 2017: Towards the Forest - [Moon Summer](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
 - 2017: Cedarstrip Rocketship - [Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
 - 2011: The Natural Shocks - Complete With Comfortable Lighting (vocals)
