@@ -11,9 +11,12 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 
 ### December
 * December 2: [GELK 4-year anniversary party!](https://www.facebook.com/events/152008035399327/) @ Junction City Music Hall
+* December 7: Cedarstrip Rocketship @ Graffiti's
 * December 8: GELK @ Private event
-* December 16: Weak Hands w/ Bookchop, Banana Soda @ Handlebar
 * December 23: Shrinehouse @ Junction City Music Hall
+
+### January 2018
+* January 20: Weak Hands w/Bookchop @ Handlebar
 
 ## Past shows 2017
 
