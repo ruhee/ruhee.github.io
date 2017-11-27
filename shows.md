@@ -6,7 +6,6 @@ permalink: /shows/
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
 ### November
-* November 25: Shrinehouse @ Dakota Tavern
 * November 30: GELK @ Private event
 
 ### December
@@ -16,9 +15,12 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 * December 23: Shrinehouse @ Junction City Music Hall
 
 ### January 2018
-* January 20: Weak Hands w/Bookchop @ Handlebar
+* January 20: Weak Hands w/Bookchop & The Do Nothings @ Handlebar
 
 ## Past shows 2017
+
+#### November
+* November 25: Shrinehouse @ Dakota Tavern
 
 #### October
 * October 21: [Andrew James Barker _Gunslinger_ album release @ Gerrard Art Space](https://www.facebook.com/events/515342205468153/)
