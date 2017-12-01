@@ -5,14 +5,12 @@ permalink: /shows/
 
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
-### November
-* November 30: GELK @ Private event
-
 ### December
 * December 2: [GELK 4-year anniversary party!](https://www.facebook.com/events/152008035399327/) @ Junction City Music Hall
-* December 7: Cedarstrip Rocketship @ Graffiti's
+* December 3: [Andrew Barker's _Gunslinger_ @ Tranzac](https://www.facebook.com/events/169603616968871/)
+* December 7: [Cedarstrip Rocketship @ Graffiti's](https://www.facebook.com/events/757168327801552/)
 * December 8: GELK @ Private event
-* December 23: Shrinehouse @ Junction City Music Hall
+* December 23: [Shrinehouse w/Kara Harun @ Junction City Music Hall](https://www.facebook.com/events/515397132154934/)
 
 ### January 2018
 * January 20: Weak Hands w/Bookchop & The Do Nothings @ Handlebar
@@ -20,6 +18,7 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 ## Past shows 2017
 
 #### November
+* November 30: GELK @ TWG 15th anniversary party
 * November 25: Shrinehouse @ Dakota Tavern
 
 #### October
