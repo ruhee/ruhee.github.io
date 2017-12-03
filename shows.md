@@ -6,7 +6,6 @@ permalink: /shows/
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
 ### December
-* December 2: [GELK 4-year anniversary party!](https://www.facebook.com/events/152008035399327/) @ Junction City Music Hall
 * December 3: [Gunslinger @ Tranzac](https://www.facebook.com/events/169603616968871/)
 * December 7: [Cedarstrip Rocketship @ Graffiti's](https://www.facebook.com/events/757168327801552/)
 * December 8: GELK @ Private event
@@ -17,6 +16,9 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 * January 31: Gunslinger @ Castro's
 
 ## Past shows 2017
+
+#### December
+* December 2: [GELK 4-year anniversary party!](https://www.facebook.com/events/152008035399327/) @ Junction City Music Hall
 
 #### November
 * November 30: GELK @ TWG 15th anniversary party
