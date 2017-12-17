@@ -56,36 +56,36 @@ Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughli
 #### June
 * June 29: GELK @ Yankee Lady IV
 * June 9: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1658142344495124/)
-* June 7: GELK Punk @ Baby G
+* June 7: [GELK Punk @ Baby G](https://www.facebook.com/events/279104715883276/)
 
 #### May
 * May 28: GELK @ The Garrison
 * May 27: GELK @ Private event
 * May 26: GELK @ Private event
 * May 10: GELK (Blood Sugar Sex Magik tribute) @ Rivoli
-* May 6: GELK @ Junction City Music Hall
-* May 3: GELK Punk @ Baby G
+* May 6: [GELK @ Junction City Music Hall](https://www.facebook.com/events/754753178019214/)
+* May 3: [GELK Punk @ Baby G](https://www.facebook.com/events/1262033687227624/)
 
 #### April
 * April 22: GELK @ Gladstone Hotel (Melody Bar)
 * April 13: XLNS (INXS tribute) @ The Piston
 * April 7: GELK (Back to Black tribute) @ Private event
-* April 5: GELK Punk @ Baby G
+* April 5: [GELK Punk @ Baby G](https://www.facebook.com/events/276825266076191/)
 
 #### March
-* March 22: GELK (Back to Black tribute) @ Rivoli
+* March 22: [GELK (Back to Black tribute) @ Rivoli](https://www.facebook.com/events/1416140501794325/)
 * March 17: GELK @ Gladstone Hotel (Ballroom)
 * March 10: GELK (David Bowie tribute) @ The Garrison
-* March 1: GELK Punk @ Baby G
+* March 1: [GELK Punk @ Baby G](https://www.facebook.com/events/1896157573964610/)
 
 #### February
 * February 27: GELK @ Parts & Labour
 * February 18: GELK @ Gladstone Hotel (Melody Bar)
 * February 3: GELK @ Doogie's (Guelph)
-* February 1: GELK Punk @ Baby G
+* February 1: [GELK Punk @ Baby G](https://www.facebook.com/events/802311723243555/)
 
 #### January
-* January 7: GELK @ Junction City Music Hall
+* January 7: [GELK @ Junction City Music Hall](https://www.facebook.com/events/1800976926833414)
 * January 6: Cedarstrip Rocketship @ Graffiti's
 
 
