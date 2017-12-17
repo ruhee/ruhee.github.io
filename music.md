@@ -49,7 +49,8 @@ Previous work:
 - 2011: [Oneiric](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
-- 2017: Germaphobes full-length _(coming soon)_
+- 2018: Jordaan Mason full-length (flute, tenor sax) _(coming soon)_
+- 2018: Germaphobes full-length (tenor sax) _(coming soon)_
 - 2017: Andrew James Barker - [Gunslinger](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 - 2017: Towards the Forest - [Moon Summer](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
 - 2017: Cedarstrip Rocketship - [Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
