@@ -22,6 +22,7 @@ Previous work:
 - [The Bicycles](http://thebicycles.bandcamp.com)
 - [The Rural Alberta Advantage](http://theraa.com)
 - [Maylee Todd](http://www.mayleetodd.com)
+- [Jordaan Mason](https://jordaanmason.bandcamp.com/)
 - [Jason Doell](http://www.jasondoell.com)
 - Nich Worby
 - [Chrome & The Ice Queen](https://chromeandtheicequeen.bandcamp.com/)
