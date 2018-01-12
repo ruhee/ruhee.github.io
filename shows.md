@@ -6,9 +6,16 @@ permalink: /shows/
 Updated all the time! GELK is [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com).
 
 ### 2018
+
+#### January
 * January 20: [Weak Hands w/Bookchop & The Do Nothings @ Handlebar](https://www.facebook.com/events/1935926319953402/)
-* January 31: Gunslinger @ Castro's
+* January 31: [Gunslinger @ Castro's](https://www.facebook.com/events/526888074339726/)
+
+#### February
+* February 2: [The Beachmen w/Sportsfan & B-17 @ Smiling Buddha](https://www.facebook.com/events/208405756395325/)
 * February 23: Gunslinger @ Gerrard Art Space
+
+#### March
 * March 23: Shrinehouse @ Dakota Tavern
 
 ## Past shows 2017
