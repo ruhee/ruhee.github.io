@@ -14,7 +14,7 @@ Updated all the time!
 
 #### February
 * February 2: [The Beachmen w/Sportsfan & B-17 @ Smiling Buddha](https://www.facebook.com/events/208405756395325/)
-* February 18: Weak Hands @ D-Beatstro closing fest
+* February 18: [Weak Hands @ D-Beatstro closing fest](git@github.com:ruhee/ruhee.github.io.git)
 * February 23: Gunslinger @ Gerrard Art Space
 
 #### March
