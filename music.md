@@ -57,7 +57,7 @@ Previous work:
 - 2017: [Andrew James Barker - Gunslinger](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 - 2017: [Towards the Forest - Moon Summer](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
 - 2017: [Cedarstrip Rocketship - Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
-- 2011: The Natural Shocks - Complete With Comfortable Lighting (vocals)
+- 2011: [The Natural Shocks - Complete With Comfortable Lighting](http://thenaturalshocks.bigcartel.com/) (vocals)
 - 2010: [Dr Ew - Gadzooks](https://doctor-ew.bandcamp.com/) (tenor sax)
 - 2009: [Gravity Wave - Gambol](https://gravity-wave.bandcamp.com/album/gambol) (tenor sax, flute)
 - 2009: The Dropjoys - The Dropjoys (flute)
