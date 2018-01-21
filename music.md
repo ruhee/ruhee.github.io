@@ -5,32 +5,36 @@ permalink: /music/
 
 ![Del Bel at the APK]({{ site.url }}/assets/apk.jpg)
 
-Currently:
+### Current projects
+
 - [Weak Hands](http://weakhandsband.com), a punk rock band (vocals, lead guitar)
 - [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
 - [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 - [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) (tenor sax, keyboards, vocals, guitar)
 
-Previous work:
+### Previous work in performance
 
-### In performance
+As a full member:
 
 - [Entire Cities](http://entirecities.bandcamp.com)
 - [Del Bel](http://www.delbelmusic.com)
+- [Henri Fabergé and The Adorables](https://en.wikipedia.org/wiki/Henri_Faberg%C3%A9_and_the_Adorables)
+- Clarinet Panic
+- The Cheap Speakers
+
+Guest/part-time/occasional: 
+
 - [Bry Webb](http://brywebb.com)
 - [The Weather Station](http://theweatherstation.bandcamp.com)
-- [Henri Fabergé and The Adorables](https://en.wikipedia.org/wiki/Henri_Faberg%C3%A9_and_the_Adorables)
 - [The Bicycles](http://thebicycles.bandcamp.com)
 - [The Rural Alberta Advantage](http://theraa.com)
 - [Maylee Todd](http://www.mayleetodd.com)
-- [Jordaan Mason](https://jordaanmason.bandcamp.com/)
 - [Jason Doell](http://www.jasondoell.com)
 - Nich Worby
 - [Chrome & The Ice Queen](https://chromeandtheicequeen.bandcamp.com/)
 - XLNS (an INXS tribute)
 - [Basement Arms](https://myspace.com/basementarms/music/songs)
 - [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/releases)
-- Clarinet Panic
 - Andrew Ennals & His Checkered Past
 - The Natural Shocks
 - Traplines
@@ -63,5 +67,4 @@ Previous work:
 - 2009: The Dropjoys - The Dropjoys (flute)
 - 2008: [Dwight Schenk - Natural Disasters](https://www.youtube.com/playlist?list=PLpMW5dPK8c5JqHsxJhwAazL-156qhPa78) (flute, vocals)
 - 2008: [The Bicycles - Oh No! It's Love!](https://thebicycles.bandcamp.com/album/oh-no-its-love) (tenor sax)
-- 2008: Dwight Schenk - Natural Disasters (flute)
 - 2007: [Brian Joseph Davis - The Definitive Host](http://freemusicarchive.org/music/Brian_Joseph_Davis/The_Definitive_Host) (vocals)
