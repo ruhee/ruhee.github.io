@@ -8,8 +8,6 @@ Updated all the time!
 ### 2018
 
 #### January
-* January 18: [Good Enough Live Karaoke @ Rec Room](https://www.facebook.com/events/256323058231012/)
-* January 20: [Weak Hands w/Bookchop & The Do Nothings @ Handlebar](https://www.facebook.com/events/1935926319953402/)
 * January 31: [Gunslinger @ Castro's](https://www.facebook.com/events/526888074339726/)
 
 #### February
@@ -20,7 +18,12 @@ Updated all the time!
 #### March
 * March 23: Shrinehouse @ Dakota Tavern
 
-## Past shows 2017
+## Past shows 2018
+
+* January 20: [Weak Hands w/Bookchop & The Do Nothings @ Handlebar](https://www.facebook.com/events/1935926319953402/)
+* January 18: [Good Enough Live Karaoke @ Rec Room](https://www.facebook.com/events/256323058231012/)
+
+## 2017
 
 #### December
 * December 23: [Shrinehouse w/Kara Harun @ Junction City Music Hall](https://www.facebook.com/events/515397132154934/)

@@ -6,7 +6,7 @@ permalink: /music/
 ![Del Bel at the APK]({{ site.url }}/assets/apk.jpg)
 
 Currently:
-- [Weak Hands](http://twitter.com/weakhandsband), a punk rock band (vocals, lead guitar)
+- [Weak Hands](http://weakhandsband.com), a punk rock band (vocals, lead guitar)
 - [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
 - [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 - [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com) (tenor sax, keyboards, vocals, guitar)
