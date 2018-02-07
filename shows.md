@@ -8,14 +8,17 @@ Updated all the time!
 ### 2018
 
 #### February
-* February 2: [The Beachmen w/Sportsfan & B-17 @ Smiling Buddha](https://www.facebook.com/events/208405756395325/)
 * February 18: [Weak Hands @ D-Beatstro closing fest](git@github.com:ruhee/ruhee.github.io.git)
 * February 23: [Gunslinger @ Gerrard Art Space](https://www.facebook.com/events/396992367419320/)
 
 #### March
 * March 23: Shrinehouse @ Dakota Tavern
 
+#### April
+* April 1: Girls Rock Camp Toronto's Rock Lottery @ Burdock
+
 ## Past shows 2018
+* February 2: [The Beachmen w/Sportsfan & B-17 @ Smiling Buddha](https://www.facebook.com/events/208405756395325/)
 * January 31: [Gunslinger @ Castro's](https://www.facebook.com/events/526888074339726/)
 * January 20: [Weak Hands w/Bookchop & The Do Nothings @ Handlebar](https://www.facebook.com/events/1935926319953402/)
 * January 18: [Good Enough Live Karaoke @ Rec Room](https://www.facebook.com/events/256323058231012/)
