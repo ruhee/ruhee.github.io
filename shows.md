@@ -15,7 +15,7 @@ Updated all the time!
 * March 23: Shrinehouse @ Dakota Tavern
 
 #### April
-* April 1: Girls Rock Camp Toronto's Rock Lottery @ Burdock
+* April 1: [Girls Rock Camp Toronto Rock Lottery](https://www.facebook.com/profile.php?id=1067196316754062) @ Burdock
 
 ## Past shows 2018
 * February 2: [The Beachmen w/Sportsfan & B-17 @ Smiling Buddha](https://www.facebook.com/events/208405756395325/)
