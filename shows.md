@@ -3,23 +3,24 @@ title: Shows
 permalink: /shows/
 ---
 
-Updated all the time!
+I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrinehouse](https://www.facebook.com/shrinehouseband/), [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), and [Good Enough Live Karaoke (GELK)](http://www.goodenoughlivekaraoke.com).
 
 ### 2018
 
 #### March
 * March 7: Weak Hands @ Dakota Tavern
+* March 19: GELK @ Private event
 * March 23: Shrinehouse @ Dakota Tavern
-* March 27: Gunslinger @ Castro's
+* March 27: Gunslinger Five @ Castro's
 
 #### April
 * April 1: [Girls Rock Camp Toronto Rock Lottery](https://www.facebook.com/profile.php?id=1067196316754062) @ Burdock
 
 ## Past shows 2018
-* February 23: [Gunslinger @ Gerrard Art Space](https://www.facebook.com/events/396992367419320/)
+* February 23: [Gunslinger Five @ Gerrard Art Space](https://www.facebook.com/events/396992367419320/)
 * February 18: [Weak Hands @ D-Beatstro closing fest](git@github.com:ruhee/ruhee.github.io.git)
 * February 2: [The Beachmen w/Sportsfan & B-17 @ Smiling Buddha](https://www.facebook.com/events/208405756395325/)
-* January 31: [Gunslinger @ Castro's](https://www.facebook.com/events/526888074339726/)
+* January 31: [Gunslinger Five @ Castro's](https://www.facebook.com/events/526888074339726/)
 * January 20: [Weak Hands w/Bookchop & The Do Nothings @ Handlebar](https://www.facebook.com/events/1935926319953402/)
 * January 18: [Good Enough Live Karaoke @ Rec Room](https://www.facebook.com/events/256323058231012/)
 
@@ -30,7 +31,7 @@ Updated all the time!
 * December 9: Solo @ [Robert Dayton's The Empty Bed book launch](https://www.facebook.com/events/157685731628662/)
 * December 8: GELK @ Private event
 * December 7: [Cedarstrip Rocketship @ Graffiti's](https://www.facebook.com/events/757168327801552/)
-* December 3: [Gunslinger @ Tranzac](https://www.facebook.com/events/169603616968871/)
+* December 3: [Gunslinger Five @ Tranzac](https://www.facebook.com/events/169603616968871/)
 * December 2: [GELK 4-year anniversary party!](https://www.facebook.com/events/152008035399327/) @ Junction City Music Hall
 
 
