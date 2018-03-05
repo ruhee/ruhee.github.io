@@ -8,13 +8,13 @@ I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrin
 ### 2018
 
 #### March
-* March 7: Weak Hands @ Dakota Tavern
+* March 7: [Weak Hands @ Dakota Tavern (T. Thomason residency)](https://www.facebook.com/events/2015483122054456/)
 * March 19: GELK @ Private event
-* March 23: Shrinehouse @ Dakota Tavern
+* March 23: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/182588229134490/)
 * March 27: Gunslinger Five @ Castro's
 
 #### April
-* April 1: [Girls Rock Camp Toronto Rock Lottery](https://www.facebook.com/profile.php?id=1067196316754062) @ Burdock
+* April 1: [Girls Rock Camp Toronto Rock Lottery @ Burdock](https://www.facebook.com/profile.php?id=1067196316754062)
 
 ## Past shows 2018
 * February 23: [Gunslinger Five @ Gerrard Art Space](https://www.facebook.com/events/396992367419320/)
