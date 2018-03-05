@@ -57,7 +57,7 @@ Guest/part-time/occasional:
 #### Others
 - 2018: [Bookchop](https://bookchop.bandcamp.com/releases) full-length (tenor sax) _(coming soon)_
 - 2018: [Jordaan Mason](https://jordaanmason.bandcamp.com/) full-length (flute, tenor sax) _(coming soon)_
-- 2018: [Germaphobes](https://germaphobes.bandcamp.com/) full-length (tenor sax) _(coming soon)_
+- 2018: [Goosebump (formerly Germaphobes)](https://goosebump.bandcamp.com/) full-length (tenor sax) _(coming soon)_
 - 2017: [Andrew James Barker - Gunslinger](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 - 2017: [Towards the Forest - Moon Summer](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
 - 2017: [Cedarstrip Rocketship - Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
