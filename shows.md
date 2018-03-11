@@ -8,15 +8,16 @@ I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrin
 ### 2018
 
 #### March
-* March 7: [Weak Hands @ Dakota Tavern (T. Thomason residency)](https://www.facebook.com/events/2015483122054456/)
 * March 19: GELK @ Private event
 * March 23: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/182588229134490/)
 * March 27: Gunslinger Five @ Castro's
 
 #### April
 * April 1: [Girls Rock Camp Toronto Rock Lottery @ Burdock](https://www.facebook.com/profile.php?id=1067196316754062)
+* April 21: Weak Hands w/ Mother Tongue, Eyeballs, Slutcode @ Handlebar
 
 ## Past shows 2018
+* March 7: [Weak Hands @ Dakota Tavern (T. Thomason residency)](https://www.facebook.com/events/2015483122054456/)
 * February 23: [Gunslinger Five @ Gerrard Art Space](https://www.facebook.com/events/396992367419320/)
 * February 18: [Weak Hands @ D-Beatstro closing fest](git@github.com:ruhee/ruhee.github.io.git)
 * February 2: [The Beachmen w/Sportsfan & B-17 @ Smiling Buddha](https://www.facebook.com/events/208405756395325/)
