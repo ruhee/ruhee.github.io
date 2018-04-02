@@ -7,12 +7,12 @@ I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrin
 
 ### 2018
 
-* March 27: [Gunslinger VI @ Castro's](https://www.facebook.com/events/1831716753793837/)
-* April 1: [Girls Rock Camp Toronto Rock Lottery @ Burdock](https://www.facebook.com/profile.php?id=1067196316754062)
 * April 21: [Weak Hands w/ Mother Tongue, Eyeballs, Slutcode @ Handlebar](https://www.facebook.com/events/160232448018992/)
 * May 20: [Weak Hands w/Shilpa Ray, Bald Britney @ Baby G](https://www.facebook.com/events/740651842807731/)
 
 ## Past shows 2018
+* April 1: [Girls Rock Camp Toronto Rock Lottery @ Burdock](https://www.facebook.com/profile.php?id=1067196316754062)
+* March 27: [Gunslinger VI @ Castro's](https://www.facebook.com/events/1831716753793837/)
 * March 23: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/182588229134490/)
 * March 7: [Weak Hands @ Dakota Tavern (T. Thomason residency)](https://www.facebook.com/events/2015483122054456/)
 * February 23: [Gunslinger Five @ Gerrard Art Space](https://www.facebook.com/events/396992367419320/)
