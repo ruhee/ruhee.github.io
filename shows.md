@@ -8,6 +8,7 @@ I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrin
 ### 2018
 
 * April 21: [Weak Hands w/ Mother Tongue, Eyeballs, Slutcode @ Handlebar](https://www.facebook.com/events/160232448018992/)
+* May 4: XLNS (INXS tribute) @ Lee's Palace
 * May 20: [Weak Hands w/Shilpa Ray, Bald Britney @ Baby G](https://www.facebook.com/events/740651842807731/)
 
 ## Past shows 2018
