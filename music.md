@@ -55,6 +55,7 @@ Guest/part-time/occasional:
 - 2011: [Oneiric](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
+- 2018: [LeBarons](https://lebarons.bandcamp.com/) full-length (tenor sax) _(coming soon)_
 - 2018: [Bookchop](https://bookchop.bandcamp.com/releases) full-length (tenor sax) _(coming soon)_
 - 2018: [Jordaan Mason](https://jordaanmason.bandcamp.com/) full-length (flute, tenor sax) _(coming soon)_
 - 2018: [Goosebump (formerly Germaphobes)](https://goosebump.bandcamp.com/) full-length (tenor sax) _(coming soon)_
