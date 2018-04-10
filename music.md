@@ -44,28 +44,28 @@ Guest/part-time/occasional:
 ### Recordings
 
 #### Entire Cities
-- 2016: [Rock Chapel](https://entirecities.bandcamp.com/album/rock-chapel) (vocals, flute, tenor sax, banjo, arrangements)
-- 2010: [I Hope You Never Come Home](https://entirecities.bandcamp.com/album/i-hope-you-never-come-home) (vocals, flute, tenor sax, arrangements)
-- 2008: [Deep River](https://entirecities.bandcamp.com/album/deep-river) (flute)
+- 2016: [_Rock Chapel_](https://entirecities.bandcamp.com/album/rock-chapel) (vocals, flute, tenor sax, banjo, arrangements)
+- 2010: [_I Hope You Never Come Home_](https://entirecities.bandcamp.com/album/i-hope-you-never-come-home) (vocals, flute, tenor sax, arrangements)
+- 2008: [_Deep River_](https://entirecities.bandcamp.com/album/deep-river) (flute)
 
 #### Del Bel
-- 2015: [Del Bel](https://delbel.bandcamp.com/album/del-bel) (baritone sax)
-- 2012: [Tour EP](https://delbel.bandcamp.com/album/del-bel-bry-webb-duet-ep-tour-single) ft. Bry Webb (baritone sax)
-- 2012: [Kareemix Abdel Jabbel](https://delbel.bandcamp.com/album/kareemix-abdel-jabbel) (baritone sax)
-- 2011: [Oneiric](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
+- 2015: [_Del Bel_](https://delbel.bandcamp.com/album/del-bel) (baritone sax)
+- 2012: [_Tour_ EP](https://delbel.bandcamp.com/album/del-bel-bry-webb-duet-ep-tour-single) ft. Bry Webb (baritone sax)
+- 2012: [_Kareemix Abdel Jabbel_](https://delbel.bandcamp.com/album/kareemix-abdel-jabbel) (baritone sax)
+- 2011: [_Oneiric_](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
-- 2018: [Jordaan Mason - Earth to Ursa Major](https://jordaanmason.bandcamp.com/album/earth-to-ursa-major) (flute, tenor sax) _(May 31, 2018)_
+- 2018: [Jordaan Mason - _Earth to Ursa Major_](https://jordaanmason.bandcamp.com/album/earth-to-ursa-major) (flute, tenor sax) _(May 31, 2018)_
 - 2018: [LeBarons](https://lebarons.bandcamp.com/) full-length (tenor sax) _(coming soon)_
 - 2018: [Bookchop](https://bookchop.bandcamp.com/releases) full-length (tenor sax) _(coming soon)_
 - 2018: [Goosebump (formerly Germaphobes)](https://goosebump.bandcamp.com/) full-length (tenor sax) _(coming soon)_
-- 2017: [Andrew James Barker - Gunslinger](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
-- 2017: [Towards the Forest - Moon Summer](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
-- 2017: [Cedarstrip Rocketship - Mountie Quarters EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
-- 2011: [The Natural Shocks - Complete With Comfortable Lighting](http://thenaturalshocks.bigcartel.com/) (vocals)
-- 2010: [Dr Ew - Gadzooks](https://doctor-ew.bandcamp.com/) (tenor sax)
-- 2009: [Gravity Wave - Gambol](https://gravity-wave.bandcamp.com/album/gambol) (tenor sax, flute)
-- 2009: The Dropjoys - The Dropjoys (flute)
-- 2008: [Dwight Schenk - Natural Disasters](https://www.youtube.com/playlist?list=PLpMW5dPK8c5JqHsxJhwAazL-156qhPa78) (flute, vocals)
-- 2008: [The Bicycles - Oh No! It's Love!](https://thebicycles.bandcamp.com/album/oh-no-its-love) (tenor sax)
-- 2007: [Brian Joseph Davis - The Definitive Host](http://freemusicarchive.org/music/Brian_Joseph_Davis/The_Definitive_Host) (vocals)
+- 2017: [Andrew James Barker - _Gunslinger_](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
+- 2017: [Towards the Forest - _Moon Summer_](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
+- 2017: [Cedarstrip Rocketship - _Mountie Quarters_ EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
+- 2011: [The Natural Shocks - _Complete With Comfortable Lighting_](http://thenaturalshocks.bigcartel.com/) (vocals)
+- 2010: [Dr Ew - _Gadzooks_](https://doctor-ew.bandcamp.com/) (tenor sax)
+- 2009: [Gravity Wave - _Gambol_](https://gravity-wave.bandcamp.com/album/gambol) (tenor sax, flute)
+- 2009: The Dropjoys - _The Dropjoys_ (flute)
+- 2008: [Dwight Schenk - _Natural Disasters_](https://www.youtube.com/playlist?list=PLpMW5dPK8c5JqHsxJhwAazL-156qhPa78) (flute, vocals)
+- 2008: [The Bicycles - _Oh No! It's Love!_](https://thebicycles.bandcamp.com/album/oh-no-its-love) (tenor sax)
+- 2007: [Brian Joseph Davis - _The Definitive Host_](http://freemusicarchive.org/music/Brian_Joseph_Davis/The_Definitive_Host) (vocals)
