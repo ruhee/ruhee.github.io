@@ -55,9 +55,9 @@ Guest/part-time/occasional:
 - 2011: [Oneiric](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
+- 2018: [Jordaan Mason - Earth to Ursa Major](https://jordaanmason.bandcamp.com/album/earth-to-ursa-major) (flute, tenor sax) _(May 31, 2018)_
 - 2018: [LeBarons](https://lebarons.bandcamp.com/) full-length (tenor sax) _(coming soon)_
 - 2018: [Bookchop](https://bookchop.bandcamp.com/releases) full-length (tenor sax) _(coming soon)_
-- 2018: [Jordaan Mason](https://jordaanmason.bandcamp.com/) full-length (flute, tenor sax) _(coming soon)_
 - 2018: [Goosebump (formerly Germaphobes)](https://goosebump.bandcamp.com/) full-length (tenor sax) _(coming soon)_
 - 2017: [Andrew James Barker - Gunslinger](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 - 2017: [Towards the Forest - Moon Summer](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
