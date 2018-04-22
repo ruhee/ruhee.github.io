@@ -7,12 +7,12 @@ I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrin
 
 ### 2018
 
-* April 21: [Weak Hands w/ Mother Tongue, Eyeballs, Slutcode @ Handlebar](https://www.facebook.com/events/160232448018992/)
 * May 4: [XLNS (INXS tribute) w/ Tragically Hits & RG5 @ Lee's Palace](https://www.facebook.com/events/427626857650176/)
 * May 20: [Weak Hands w/Shilpa Ray, Bald Britney @ Baby G](https://www.facebook.com/events/740651842807731/)
 * Sept 7: Shrinehouse @ [The Hayloft (Prince Edward County)](http://thehayloftdancehall.com/)
 
 ## Past shows 2018
+* April 21: [Weak Hands w/ Mother Tongue, Eyeballs, Slutcode @ Handlebar](https://www.facebook.com/events/160232448018992/)
 * April 1: [Girls Rock Camp Toronto Rock Lottery @ Burdock](https://www.facebook.com/profile.php?id=1067196316754062)
 * March 27: [Gunslinger VI @ Castro's](https://www.facebook.com/events/1831716753793837/)
 * March 23: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/182588229134490/)
