@@ -8,6 +8,7 @@ I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrin
 ### 2018
 
 * May 4: [XLNS (INXS tribute) w/ Tragically Hits & RG5 @ Lee's Palace](https://www.facebook.com/events/427626857650176/)
+* May 19: [Bookchop w/Zorton & The Cannibals, +more @ Duggan's](https://www.facebook.com/events/351086032068066/)
 * May 20: [Weak Hands w/Shilpa Ray, Bald Britney @ Baby G](https://www.facebook.com/events/740651842807731/)
 * Sept 7: Shrinehouse @ [The Hayloft (Prince Edward County)](http://thehayloftdancehall.com/)
 
