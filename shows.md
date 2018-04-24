@@ -3,7 +3,9 @@ title: Shows
 permalink: /shows/
 ---
 
-I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrinehouse](https://www.facebook.com/shrinehouseband/), [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), and [Good Enough Live Karaoke (GELK)](http://www.goodenoughlivekaraoke.com).
+I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrinehouse](https://www.facebook.com/shrinehouseband/), and [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger).
+
+Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and [Good Enough Live Karaoke (GELK)](http://www.goodenoughlivekaraoke.com), and sometimes with other people too. 
 
 ### 2018
 
