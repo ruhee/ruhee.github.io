@@ -9,12 +9,11 @@ Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, [Cedarstr
 
 ### 2018
 
-* May 19: [Bookchop w/Zorton & The Cannibals, +more @ Duggan's](https://www.facebook.com/events/351086032068066/)
 * May 20: [Weak Hands w/Shilpa Ray, Bald Britney @ Baby G](https://www.facebook.com/events/740651842807731/)
-* September 7: Shrinehouse @ [The Hayloft (Prince Edward County)](http://thehayloftdancehall.com/)
 * December 15: Shrinehouse @ private event
 
 ## Past shows 2018
+* May 19: [Bookchop w/Zorton & The Cannibals, +more @ Duggan's](https://www.facebook.com/events/351086032068066/)
 * May 4: [XLNS (INXS tribute) w/ Tragically Hits & RG5 @ Lee's Palace](https://www.facebook.com/events/427626857650176/)
 * April 21: [Weak Hands w/ Mother Tongue, Eyeballs, Slutcode @ Handlebar](https://www.facebook.com/events/160232448018992/)
 * April 1: [Girls Rock Camp Toronto Rock Lottery @ Burdock](https://www.facebook.com/profile.php?id=1067196316754062)
