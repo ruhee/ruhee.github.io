@@ -9,6 +9,8 @@ Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, [Cedarstr
 
 ### 2018
 
+* June 26: Gunslinger Five @ Castro's
+* July 12: Weak Hands w/ Dinosaur Island (LP release) @ Handlebar
 * July 27: Shrinehouse @ Dakota Tavern
 * July 28: Shrinehouse @ Dakota Tavern
 * December 15: Shrinehouse @ private event
