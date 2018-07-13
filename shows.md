@@ -9,12 +9,12 @@ Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, [Cedarstr
 
 ### 2018
 
-* July 12: [Weak Hands w/ Dinosaur Island (LP release) @ Handlebar](https://www.facebook.com/events/2010153129236472/)
 * July 26: [Goosebump (LP release) w/ Chandra, Persons, Cosmic Resonance DJs @ Lula Lounge](https://www.facebook.com/events/579568395761059/)
 * July 27: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1835803953137082/)
 * December 15: Shrinehouse @ private event
 
 ## Past shows 2018
+* July 12: [Weak Hands w/ Dinosaur Island (LP release) @ Handlebar](https://www.facebook.com/events/2010153129236472/)
 * June 26: [Gunslinger Five @ Castro's](https://www.facebook.com/events/2248618615350917/)
 * May 20: [Weak Hands w/Shilpa Ray, Bald Britney @ Baby G](https://www.facebook.com/events/740651842807731/)
 * May 19: [Bookchop w/Zorton & The Cannibals, Bunny @ Duggan's](https://www.facebook.com/events/351086032068066/)
