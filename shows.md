@@ -5,15 +5,17 @@ permalink: /shows/
 
 I'm currently a regular member of [Weak Hands](http://weakhandsband.com), [Shrinehouse](https://www.facebook.com/shrinehouseband/), and [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger).
 
-Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and [Good Enough Live Karaoke (GELK)](http://www.goodenoughlivekaraoke.com), and sometimes with other people too. 
+Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, and [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and sometimes with other people too. 
 
 ### 2018
 
-* July 26: [Goosebump (LP release) w/ Chandra, Persons, Cosmic Resonance DJs @ Lula Lounge](https://www.facebook.com/events/579568395761059/)
-* July 27: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1835803953137082/)
+* August 31: Shrinehouse @ Junction City Music Hall
+* October 20: exciting show TBA!
 * December 15: Shrinehouse @ private event
 
 ## Past shows 2018
+* July 27: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1835803953137082/)
+* July 26: [Goosebump (LP release) w/ Chandra, Persons, Cosmic Resonance DJs @ Lula Lounge](https://www.facebook.com/events/579568395761059/)
 * July 12: [Weak Hands w/ Dinosaur Island (LP release) @ Handlebar](https://www.facebook.com/events/2010153129236472/)
 * June 26: [Gunslinger Five @ Castro's](https://www.facebook.com/events/2248618615350917/)
 * May 20: [Weak Hands w/Shilpa Ray, Bald Britney @ Baby G](https://www.facebook.com/events/740651842807731/)
