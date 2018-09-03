@@ -9,11 +9,11 @@ Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, and [Ceda
 
 ### 2018
 
-* August 31: Shrinehouse @ Junction City Music Hall
 * October 20: exciting show TBA!
 * December 15: Shrinehouse @ private event
 
 ## Past shows 2018
+* August 31: Shrinehouse @ Junction City Music Hall
 * July 27: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1835803953137082/)
 * July 26: [Goosebump (LP release) w/ Chandra, Persons, Cosmic Resonance DJs @ Lula Lounge](https://www.facebook.com/events/579568395761059/)
 * July 12: [Weak Hands w/ Dinosaur Island (LP release) @ Handlebar](https://www.facebook.com/events/2010153129236472/)
