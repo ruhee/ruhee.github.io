@@ -55,7 +55,7 @@ Guest/part-time/occasional:
 - 2011: [_Oneiric_](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
-- 2018: [LeBarons](https://lebarons.bandcamp.com/) full-length (tenor sax) _(coming soon)_
+- 2018: [LeBarons - _Summer of Death_](https://lebarons.bandcamp.com/album/summer-of-death) (tenor sax) _(November 2, 2018)_
 - 2018: [Goosebump - _Goosebump_](https://goosebumppleasence.bandcamp.com/) (tenor sax)
 - 2018: [Jordaan Mason - _Earth to Ursa Major_](https://jordaanmason.bandcamp.com/album/earth-to-ursa-major) (flute, tenor sax)
 - 2018: [Bookchop - _Hello Darling_](https://bookchop.bandcamp.com/album/hello-darling) (tenor sax)

@@ -9,10 +9,12 @@ Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, and [Ceda
 
 ### 2018
 
-* October 20: exciting show TBA!
+* November 21: with Beverley McKiver @ [Weesageechak 31](https://www.nativeearth.ca/weesageechak31/)
+* December 1: Shrinehouse @ Dakota Tavern
 * December 15: Shrinehouse @ private event
 
 ## Past shows 2018
+* October 20: [Entire Cities @ Owl's Club](https://www.facebook.com/events/174739770042010/)
 * August 31: Shrinehouse @ Junction City Music Hall
 * July 27: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1835803953137082/)
 * July 26: [Goosebump (LP release) w/ Chandra, Persons, Cosmic Resonance DJs @ Lula Lounge](https://www.facebook.com/events/579568395761059/)
