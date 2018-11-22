@@ -9,11 +9,15 @@ Sometimes I play with [Bookchop](http://bookchop.bandcamp.com/), XLNS, and [Ceda
 
 ### 2018
 
-* November 21: with Beverley McKiver @ [Weesageechak 31](https://www.nativeearth.ca/weesageechak31/)
-* December 1: Shrinehouse @ Dakota Tavern
+* December 1: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/2199972020271231/)
 * December 15: Shrinehouse @ private event
 
+### 2019
+
+* January 5: [Weak Hands w/ Orville Peck, Gloin, Nikki Fierce, The Effens @ Monarch Tavern (Class of 2019)](https://www.facebook.com/events/290911961550193/)
+
 ## Past shows 2018
+* November 21: with Beverley McKiver @ [Weesageechak 31](https://www.nativeearth.ca/weesageechak31/)
 * October 20: [Entire Cities @ Owl's Club](https://www.facebook.com/events/174739770042010/)
 * August 31: Shrinehouse @ Junction City Music Hall
 * July 27: [Shrinehouse @ Dakota Tavern](https://www.facebook.com/events/1835803953137082/)
