@@ -9,7 +9,6 @@ permalink: /music/
 
 - [Weak Hands](http://weakhandsband.com) (vocals, lead guitar)
 - [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
-- [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
 
 ### Previous work in performance
 
@@ -17,12 +16,13 @@ As a full member:
 
 - [Entire Cities](http://entirecities.bandcamp.com)
 - [Del Bel](http://www.delbelmusic.com)
+- [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger)
 - [Henri Fabergé and The Adorables](https://en.wikipedia.org/wiki/Henri_Faberg%C3%A9_and_the_Adorables)
 - [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com)
 - Clarinet Panic
 - The Cheap Speakers
 
-Guest/part-time/occasional: 
+Guest/part-time/occasional:
 
 - [Bry Webb](http://brywebb.com)
 - [The Weather Station](http://theweatherstation.bandcamp.com)
