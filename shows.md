@@ -9,6 +9,12 @@ Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.co
 
 ### 2019
 
+* February 1: [Weak Hands w/ Molly Davis Band, Sandra Zelazny @ Cameron House](https://www.facebook.com/events/308366519799844/)
+* March 2: Weak Hands+ @ C'est What
+* May 31: TBA
+
+## Past shows 2019
+
 * January 5: [Weak Hands w/ Orville Peck, Gloin, Nikki Fierce, The Effens @ Monarch Tavern (Class of 2019)](https://www.facebook.com/events/290911961550193/)
 
 ## Past shows 2018
