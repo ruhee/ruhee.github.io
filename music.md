@@ -55,7 +55,8 @@ Guest/part-time/occasional:
 - 2011: [_Oneiric_](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
-- 2018: [LeBarons - _Summer of Death_](https://lebarons.bandcamp.com/album/summer-of-death) (tenor sax) _(November 2, 2018)_
+- 2019: [Lowest of the Low](http://lowestofthelow.com/) full-length _(May 2019)_ (tenor sax, baritone sax, vocals)
+- 2018: [LeBarons - _Summer of Death_](https://lebarons.bandcamp.com/album/summer-of-death) (tenor sax)
 - 2018: [Goosebump - _Goosebump_](https://goosebumppleasence.bandcamp.com/) (tenor sax)
 - 2018: [Jordaan Mason - _Earth to Ursa Major_](https://jordaanmason.bandcamp.com/album/earth-to-ursa-major) (flute, tenor sax)
 - 2018: [Bookchop - _Hello Darling_](https://bookchop.bandcamp.com/album/hello-darling) (tenor sax)
