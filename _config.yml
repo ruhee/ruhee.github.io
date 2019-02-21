@@ -23,7 +23,7 @@ markdown:           kramdown
 # Navigation
 nav:
   - name:           "About"
-    href:           "/about"
+    href:           "/"
   - name:           "Music"
     href:           "/music"
   - name:           "Shows"
