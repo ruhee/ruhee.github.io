@@ -1,6 +1,5 @@
 ---
 title: About
-layout: default
 ---
 
 ![Ruhee Dewji]({{ site.url }}/assets/ruhee.jpg)
