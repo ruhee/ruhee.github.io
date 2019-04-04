@@ -9,11 +9,11 @@ Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.co
 
 ### 2019
 
-* March 2: [Weak Hands w/ Summer & Youth, Mip Power Trio @ C'est What](https://www.facebook.com/events/782724472089374/)
 * May 31: Lowest of the Low @ Danforth Music Hall
 
 ## Past shows 2019
 
+* March 2: [Weak Hands w/ Summer & Youth, Mip Power Trio @ C'est What](https://www.facebook.com/events/782724472089374/)
 * February 1: [Weak Hands w/ Molly Davis Band, Sandra Zelazny @ Cameron House](https://www.facebook.com/events/308366519799844/)
 * January 5: [Weak Hands w/ Orville Peck, Gloin, Nikki Fierce, The Effens @ Monarch Tavern (Class of 2019)](https://www.facebook.com/events/290911961550193/)
 
