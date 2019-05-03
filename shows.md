@@ -3,13 +3,14 @@ title: Shows
 permalink: /shows/
 ---
 
-I'm currently a regular member of [Weak Hands](http://weakhandsband.com) and [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute).
+I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute) and a guest with the Lowest of the Low.
 
 Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), [Bookchop](http://bookchop.bandcamp.com/), XLNS, and [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and sometimes with other people too.
 
 ### 2019
 
 * May 31: Lowest of the Low @ Danforth Music Hall
+* June 13: Shrinehouse @ Grossman's Tavern
 
 ## Past shows 2019
 

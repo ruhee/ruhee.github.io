@@ -7,7 +7,6 @@ permalink: /music/
 
 ### Current projects
 
-- [Weak Hands](http://weakhandsband.com) (vocals, lead guitar)
 - [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
 
 ### Previous work in performance
@@ -15,6 +14,7 @@ permalink: /music/
 As a full member:
 
 - [Entire Cities](http://entirecities.bandcamp.com)
+- [Weak Hands](http://weakhandsband.com)
 - [Del Bel](http://www.delbelmusic.com)
 - [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger)
 - [Henri Fabergé and The Adorables](https://en.wikipedia.org/wiki/Henri_Faberg%C3%A9_and_the_Adorables)
@@ -24,6 +24,7 @@ As a full member:
 
 Guest/part-time/occasional:
 
+- [The Lowest of the Low](http://lowestofthelow.com/)
 - [Bry Webb](http://brywebb.com)
 - [The Weather Station](http://theweatherstation.bandcamp.com)
 - [The Bicycles](http://thebicycles.bandcamp.com)
