@@ -45,18 +45,21 @@ Guest/part-time/occasional:
 ### Recordings
 
 #### Entire Cities
+
 - 2016: [_Rock Chapel_](https://entirecities.bandcamp.com/album/rock-chapel) (vocals, flute, tenor sax, banjo, arrangements)
 - 2010: [_I Hope You Never Come Home_](https://entirecities.bandcamp.com/album/i-hope-you-never-come-home) (vocals, flute, tenor sax, arrangements)
 - 2008: [_Deep River_](https://entirecities.bandcamp.com/album/deep-river) (flute)
 
 #### Del Bel
+
 - 2015: [_Del Bel_](https://delbel.bandcamp.com/album/del-bel) (baritone sax)
 - 2012: [_Tour_ EP](https://delbel.bandcamp.com/album/del-bel-bry-webb-duet-ep-tour-single) ft. Bry Webb (baritone sax)
 - 2012: [_Kareemix Abdel Jabbel_](https://delbel.bandcamp.com/album/kareemix-abdel-jabbel) (baritone sax)
 - 2011: [_Oneiric_](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
-- 2019: [Lowest of the Low - _Agitpop_](http://lowestofthelow.com/) _(May 2019)_ (tenor sax, baritone sax, vocals)
+
+- 2019: [Lowest of the Low - AGITPOP](http://lowestofthelow.com/) (tenor sax, baritone sax, vocals)
 - 2018: [LeBarons - _Summer of Death_](https://lebarons.bandcamp.com/album/summer-of-death) (tenor sax)
 - 2018: [Goosebump - _Goosebump_](https://goosebumppleasence.bandcamp.com/) (tenor sax)
 - 2018: [Jordaan Mason - _Earth to Ursa Major_](https://jordaanmason.bandcamp.com/album/earth-to-ursa-major) (flute, tenor sax)
