@@ -9,12 +9,14 @@ Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.co
 
 ### 2019
 
-- July 18: [Soup Can Theatre 10th Anniversary @ Monarch Tavern](https://www.facebook.com/events/2307737699264985/)
-- Aug 17: [Shrinehouse Shangri-La's tribute @ Horseshoe Tavern](https://www.facebook.com/events/185621135726773/)
-- Oct 13: Shrinehouse @ private event
+- August 17: [Shrinehouse Shangri-La's tribute @ Horseshoe Tavern](https://www.facebook.com/events/185621135726773/)
+- October 13: Shrinehouse @ private event
+- December 13: TBA
+- December 14: TBA
 
 ## Past shows 2019
 
+- July 18: [Soup Can Theatre 10th Anniversary @ Monarch Tavern](https://www.facebook.com/events/2307737699264985/)
 - June 13: [Shrinehouse @ Grossman's Tavern](https://www.facebook.com/events/317729169177200/)
 - May 31: [Lowest of the Low w/Ace of Wands @ Danforth Music Hall](https://www.facebook.com/events/2131756887136240/2193686574276604/)
 - March 2: [Weak Hands w/ Summer & Youth, Mip Power Trio @ C'est What](https://www.facebook.com/events/782724472089374/)
