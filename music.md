@@ -59,6 +59,7 @@ Guest/part-time/occasional:
 
 #### Others
 
+- 2019: [Various artists - One Great Tribute: A Love Letter to The Weakerthans](https://www.facebook.com/weakerthanstribute/) - with Lowest of the Low (tenor sax) _(November 15, 2019)_
 - 2019: [Lowest of the Low - AGITPOP](http://lowestofthelow.com/) (tenor sax, baritone sax, vocals)
 - 2018: [LeBarons - _Summer of Death_](https://lebarons.bandcamp.com/album/summer-of-death) (tenor sax)
 - 2018: [Goosebump - _Goosebump_](https://goosebumppleasence.bandcamp.com/) (tenor sax)
