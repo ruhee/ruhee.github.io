@@ -8,7 +8,7 @@ permalink: /music/
 ### Current projects
 
 - [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
-- [The Lowest of the Low](http://lowestofthelow.com/) (recurring guest)
+- [Lowest of the Low](http://lowestofthelow.com/) (recurring guest)
 
 ### Previous work in performance
 

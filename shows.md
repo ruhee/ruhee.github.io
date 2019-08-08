@@ -3,7 +3,7 @@ title: Shows
 permalink: /shows/
 ---
 
-I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute) and a guest with the Lowest of the Low.
+I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute) and a guest with [Lowest of the Low](http://lowestofthelow.com/).
 
 Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), [Bookchop](http://bookchop.bandcamp.com/), XLNS, and [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and sometimes with other people too.
 
