@@ -11,8 +11,8 @@ Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.co
 
 - October 13: Shrinehouse @ private event
 - October 31: [Shrinehouse w/ Stardust (a David Bowie tribute) @ Hugh's Room](https://www.facebook.com/events/408587949763064/)
-- December 13: TBA
-- December 14: TBA
+- December 13: [Lowest of the Low @ Horseshoe Tavern](https://www.facebook.com/events/1314138618755731/)
+- December 14: [Lowest of the Low @ Lee's Palace](https://www.facebook.com/events/390755181599789/)
 
 ## Past shows 2019
 
