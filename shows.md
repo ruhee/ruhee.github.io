@@ -9,12 +9,12 @@ Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.co
 
 ### 2019
 
-- October 31: [Shrinehouse w/ Stardust (a David Bowie tribute) @ Hugh's Room](https://www.facebook.com/events/408587949763064/)
 - December 13: [Lowest of the Low @ Horseshoe Tavern](https://www.facebook.com/events/1314138618755731/)
 - December 14: [Lowest of the Low @ Lee's Palace](https://www.facebook.com/events/390755181599789/)
 
 ## Past shows 2019
 
+- October 31: [Shrinehouse w/ Stardust (a David Bowie tribute) @ Hugh's Room](https://www.facebook.com/events/408587949763064/)
 - October 13: Shrinehouse @ private event
 - August 17: [Shrinehouse Shangri-La's tribute @ Horseshoe Tavern](https://www.facebook.com/events/185621135726773/)
 - July 18: [Soup Can Theatre 10th Anniversary @ Monarch Tavern](https://www.facebook.com/events/2307737699264985/)
