@@ -18,9 +18,9 @@ As a full member:
 - [Weak Hands](http://weakhandsband.com)
 - [Del Bel](http://www.delbelmusic.com)
 - [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger)
+- [Clarinet Panic](https://www.facebook.com/Clarinet-Panic-Redux-195961967093990/)
 - [Henri Fabergé and The Adorables](https://en.wikipedia.org/wiki/Henri_Faberg%C3%A9_and_the_Adorables)
 - [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com)
-- Clarinet Panic
 - The Cheap Speakers
 
 Guest/part-time/occasional:
