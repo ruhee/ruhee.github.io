@@ -9,6 +9,7 @@ Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.co
 
 ### 2019
 
+- December 10: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/499371073992219)
 - December 13: [Lowest of the Low @ Horseshoe Tavern](https://www.facebook.com/events/1314138618755731/)
 - December 14: [Lowest of the Low @ Lee's Palace](https://www.facebook.com/events/390755181599789/)
 
