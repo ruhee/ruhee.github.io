@@ -9,12 +9,13 @@ Sometimes I play with [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.co
 
 ### 2019
 
-- December 10: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/499371073992219)
 - December 13: [Lowest of the Low @ Horseshoe Tavern](https://www.facebook.com/events/1314138618755731/)
 - December 14: [Lowest of the Low @ Lee's Palace](https://www.facebook.com/events/390755181599789/)
+- December 17: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/499371063992220/?event_time_id=499371067325553)
 
 ## Past shows 2019
 
+- December 10: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/499371073992219)
 - October 31: [Shrinehouse w/ Stardust (a David Bowie tribute) @ Hugh's Room](https://www.facebook.com/events/408587949763064/)
 - October 13: Shrinehouse @ private event
 - August 17: [Shrinehouse Shangri-La's tribute @ Horseshoe Tavern](https://www.facebook.com/events/185621135726773/)
