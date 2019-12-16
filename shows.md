@@ -5,15 +5,15 @@ permalink: /shows/
 
 I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute) and a guest with [Lowest of the Low](http://lowestofthelow.com/).
 
-Sometimes I play with [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/), [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), [Bookchop](http://bookchop.bandcamp.com/), XLNS, and [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and sometimes with other people too.
+Sometimes I play with [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/), [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), and sometimes with other people too.
 
 ### 2019
 
-- December 14: [Lowest of the Low @ Lee's Palace](https://www.facebook.com/events/390755181599789/)
 - December 17: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/499371063992220/?event_time_id=499371067325553)
 
 ## Past shows 2019
 
+- December 14: [Lowest of the Low @ Lee's Palace](https://www.facebook.com/events/390755181599789/)
 - December 13: [Lowest of the Low @ Horseshoe Tavern](https://www.facebook.com/events/1314138618755731/)
 - December 10: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/499371073992219)
 - October 31: [Shrinehouse w/ Stardust (a David Bowie tribute) @ Hugh's Room](https://www.facebook.com/events/408587949763064/)
