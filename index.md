@@ -10,3 +10,5 @@ I'm Ruhee. I make [web applications at TWG](http://twg.io) during the day and pl
 I made the [David Price Nickname Generator](http://ruhee.ca/david-price-names) and it was [well received](https://twitter.com/DAVIDprice24/status/649262015345782784). I've also made a [Sloan lyrics ipsum generator](http://ruhee.ca/sloan-ipsum) and [something to help you discover new music](http://ruhee.ca/listen).
 
 If you'd like to get a hold of me or book me for a musical project (I am currently not taking software freelance jobs or looking for new full-time employment), you can [send me an email](mailto:me@ruhee.ca).
+
+<p><em>Photo by Yuli Scheidt</em></p>
