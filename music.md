@@ -65,6 +65,7 @@ Guest/part-time/occasional:
 
 #### Others
 
+- 2019: [Cedarstrip Rocketship - _Silver Bells 2019_](https://cedarstriprocketship.bandcamp.com/track/silver-bells-2019) (tenor sax, baritone sax, vocals)
 - 2019: [Sylvia's Taco Salad - _The Luncheon_](https://bowchicawowow.bandcamp.com/releases) (flute, clarinet, crowd noise)
 - 2018: [LeBarons - _Summer of Death_](https://lebarons.bandcamp.com/album/summer-of-death) (tenor sax)
 - 2018: [Goosebump - _Goosebump_](https://goosebumppleasence.bandcamp.com/) (tenor sax)
