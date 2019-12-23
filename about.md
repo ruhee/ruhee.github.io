@@ -3,7 +3,7 @@ title: About
 permalink: /about/
 ---
 
-![Ruhee Dewji]({{ site.url }}/assets/ruhee.jpg)
+![Ruhee Dewji]({{ site.url }}/assets/yulischeidt-portrait-ruhee-4266.jpg)
 
 <p class="lead">Hi.</p>
 I'm Ruhee. I make [web applications at TWG](http://twg.io) during the day and play [a lot of music](/music) the rest of the time. Here's my [Twitter](http://twitter.com/ruhee_) and my [GitHub](http://github.com/ruhee).
