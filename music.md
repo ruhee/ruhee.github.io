@@ -27,6 +27,7 @@ Guest/part-time/occasional:
 
 - [Bry Webb](http://brywebb.com)
 - [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/)
+- [Stephen Stanley](https://stephenstanleyband.bandcamp.com/)
 - [The Weather Station](http://theweatherstation.bandcamp.com)
 - [The Bicycles](http://thebicycles.bandcamp.com)
 - [The Rural Alberta Advantage](http://theraa.com)
