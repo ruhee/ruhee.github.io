@@ -48,7 +48,7 @@ Guest/part-time/occasional:
 
 #### Lowest of the Low
 
-- 2019: [_One Great Tribute: A Love Letter to The Weakerthans_](https://www.facebook.com/weakerthanstribute/) (tenor sax)
+- 2019: [_One Great Tribute: A Love Letter to The Weakerthans_](https://theweakerthanstribute.bandcamp.com/track/pamphleteer) (tenor sax)
 - 2019: [_AGITPOP_](http://lowestofthelow.com/) (tenor sax, baritone sax, vocals)
 
 #### Entire Cities
