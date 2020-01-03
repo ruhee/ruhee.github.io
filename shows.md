@@ -7,7 +7,7 @@ I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrineh
 
 Sometimes I play with [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/), [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), and sometimes with other people too.
 
-### 2020
+## 2020
 
 Nothing for a while! Want me to play with you? [Get in touch!](mailto:me@ruhee.ca)
 
