@@ -23,7 +23,7 @@ As a full member:
 - [Good Enough Live Karaoke](http://goodenoughlivekaraoke.com)
 - The Cheap Speakers
 
-Guest/part-time/occasional:
+I've also been seen with:
 
 - [Bry Webb](http://brywebb.com)
 - [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/)
