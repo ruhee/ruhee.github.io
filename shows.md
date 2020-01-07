@@ -9,7 +9,9 @@ Sometimes I play with [Ron Hawkins & The Do Good Assassins](https://www.ronhawki
 
 ## 2020
 
-Nothing for a while! Want me to play with you? [Get in touch!](mailto:me@ruhee.ca)
+- February 1: [Guelph Black Heritage Society Motown Tribute @ Royal City Church (Guelph)](https://www.facebook.com/events/443826082872786/)
+
+Want me to play with you? [Get in touch!](mailto:me@ruhee.ca)
 
 ## Past shows 2019
 
