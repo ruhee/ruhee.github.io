@@ -10,6 +10,8 @@ Sometimes I play with [Ron Hawkins & The Do Good Assassins](https://www.ronhawki
 ## 2020
 
 - February 1: [Guelph Black Heritage Society Motown Tribute @ Royal City Church (Guelph)](https://www.facebook.com/events/443826082872786/)
+- February 14: [Death to T.O. Valentine's Day](https://www.facebook.com/events/2542255186058635/)
+- February 21: Private event
 
 Want me to play with you? [Get in touch!](mailto:me@ruhee.ca)
 
