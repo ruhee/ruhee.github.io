@@ -8,8 +8,8 @@ permalink: /music/
 ### Current projects
 
 - [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
-- [Lowest of the Low](http://lowestofthelow.com/) (recurring guest)
-- [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/) (recurring guest)
+- [Lowest of the Low](http://lowestofthelow.com/) (recurring guest) (tenor & baritone sax)
+- [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/) (recurring guest) (tenor sax)
 
 ### Previous work in performance
 
