@@ -9,6 +9,7 @@ permalink: /music/
 
 - [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
 - [Lowest of the Low](http://lowestofthelow.com/) (recurring guest)
+- [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/) (recurring guest)
 
 ### Previous work in performance
 
@@ -26,7 +27,6 @@ As a full member:
 I've also been seen with:
 
 - [Bry Webb](http://brywebb.com)
-- [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/)
 - [Stephen Stanley](https://stephenstanleyband.bandcamp.com/)
 - [The Weather Station](http://theweatherstation.bandcamp.com)
 - [The Bicycles](http://thebicycles.bandcamp.com)

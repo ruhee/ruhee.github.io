@@ -3,13 +3,12 @@ title: Shows
 permalink: /shows/
 ---
 
-I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute) and a recurring guest with [Lowest of the Low](http://lowestofthelow.com/).
+I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute) and a recurring guest with [Lowest of the Low](http://lowestofthelow.com/) and [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/).
 
-Sometimes I play with [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/), [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/), and [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), and sometimes with other people too.
+Sometimes I play with [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/) and [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), and sometimes with other people too.
 
 ## 2020
 
-- February 1: [Guelph Black Heritage Society Motown Tribute @ Royal City Church (Guelph)](https://www.facebook.com/events/443826082872786/)
 - February 4: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/172330137459741)
 - February 11: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/172330134126408)
 - February 14: [Death to T.O. Valentine's Day](https://www.facebook.com/events/2542255186058635/)
@@ -17,6 +16,10 @@ Sometimes I play with [Ron Hawkins & The Do Good Assassins](https://www.ronhawki
 - February 21: Private event
 
 Want me to play with you? [Get in touch!](mailto:me@ruhee.ca)
+
+## Past shows
+
+- February 1: [Guelph Black Heritage Society Motown Tribute @ Royal City Church (Guelph)](https://www.facebook.com/events/443826082872786/)
 
 ## Past shows 2019
 
