@@ -9,13 +9,13 @@ Sometimes I play with [Cedarstrip Rocketship](https://cedarstriprocketship.bandc
 
 ## 2020
 
-- February 18: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/172330140793074)
 - February 21: Private event
 
 Want me to play with you? [Get in touch!](mailto:me@ruhee.ca)
 
 ## Past shows
 
+- February 18: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/172330140793074)
 - February 17: [Improv Karaoke @ Comedy Bar](https://www.facebook.com/events/919645378504009/)
 - February 14: [Death to T.O. Valentine's Day](https://www.facebook.com/events/2542255186058635/)
 - February 11: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/172330134126408)
