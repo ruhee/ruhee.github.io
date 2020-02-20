@@ -28,16 +28,17 @@ I've also been seen with:
 
 - [Bry Webb](http://brywebb.com)
 - [Stephen Stanley](https://stephenstanleyband.bandcamp.com/)
+- [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/releases)
+- [Robin Hatch](https://robinhatch.bandcamp.com/)
 - [The Weather Station](http://theweatherstation.bandcamp.com)
 - [The Bicycles](http://thebicycles.bandcamp.com)
 - [The Rural Alberta Advantage](http://theraa.com)
 - [Maylee Todd](http://www.mayleetodd.com)
 - [Jason Doell](http://www.jasondoell.com)
-- Nich Worby
+- [Nich Worby](https://poorlittlemusic.bandcamp.com/album/nich-worby-lucy-plm152-c30)
 - [Chrome & The Ice Queen](https://chromeandtheicequeen.bandcamp.com/)
-- XLNS (an INXS tribute)
 - [Basement Arms](https://myspace.com/basementarms/music/songs)
-- [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/releases)
+- XLNS (an INXS tribute)
 - Andrew Ennals & His Checkered Past
 - The Natural Shocks
 - Traplines
