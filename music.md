@@ -49,6 +49,7 @@ I've also been seen with:
 
 #### Lowest of the Low
 
+- TBA: Double live album _(coming soon)_
 - 2019: [_One Great Tribute: A Love Letter to The Weakerthans_](https://theweakerthanstribute.bandcamp.com/track/pamphleteer) (tenor sax)
 - 2019: [_AGITPOP_](http://lowestofthelow.com/) (tenor sax, baritone sax, vocals)
 
