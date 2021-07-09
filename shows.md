@@ -7,13 +7,14 @@ I'm currently a regular member of [Shrinehouse](https://www.facebook.com/shrineh
 
 Sometimes I play with [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/) and [Andrew Barker's Gunslinger Five](andrewbarker.bandcamp.com/album/gunslinger), and sometimes with other people too.
 
-## 2020
+## 2021
 
-_(Shows on hold due to pandemic)_
+- December 17: TBA
+- December 18: TBA
 
 Want me to play with you? [Get in touch!](mailto:me@ruhee.ca)
 
-## Past shows
+## Past shows 2020
 
 - February 21: Private event
 - February 18: [Ron Hawkins & The Do Good Assassins @ Dakota Tavern](https://www.facebook.com/events/172330140793074)
