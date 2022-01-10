@@ -49,7 +49,7 @@ I've also been seen with:
 
 #### Lowest of the Low
 
-- 2021: [_Taverns and Palaces (Live)_](https://lnk.to/TavernsAndPalaces) (tenor sax, baritone sax)
+- 2021: [_Taverns and Palaces (Live)_](https://lnk.to/TavernsAndPalaces) (tenor sax, baritone sax, percussion)
 - 2021: [_Live at Lee's_](https://recordstoredaycanada.ca/blog/article.php?id=100) (Record Store Day Canada single) (tenor sax)
 - 2019: [_One Great Tribute: A Love Letter to The Weakerthans_](https://theweakerthanstribute.bandcamp.com/track/pamphleteer) (tenor sax)
 - 2019: [_AGITPOP_](http://lowestofthelow.com/) (tenor sax, baritone sax, vocals)
