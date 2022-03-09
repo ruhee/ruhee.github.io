@@ -11,6 +11,11 @@ Sometimes I play with [Cedarstrip Rocketship](https://cedarstriprocketship.bandc
 
 - April 1: [Lowest of the Low @ Horseshoe Tavern](https://www.showclix.com/event/lowestofthelowhs1)
 - April 2: [Lowest of the Low @ Horseshoe Tavern](https://www.showclix.com/event/lowestofthelowhs1)
+- April 7: [Ron Hawkins & the Do Good Assassins @ Dakota Tavern](https://www.eventbrite.ca/e/ron-hawkins-and-the-do-good-assassins-tickets-289841011267)
+- April 14: [Ron Hawkins & the Do Good Assassins @ Dakota Tavern (w/ Jr. Gone Wild)](https://www.eventbrite.ca/e/ron-hawkins-and-the-do-good-assassins-with-jr-gone-wild-tickets-290979105337)
+- April 21: [Ron Hawkins & the Do Good Assassins @ Dakota Tavern](https://www.eventbrite.ca/e/ron-hawkins-and-the-do-good-assassins-tickets-290983327967)
+- April 28: [Ron Hawkins & the Do Good Assassins @ Dakota Tavern](https://www.eventbrite.ca/e/ron-hawkins-and-the-do-good-assassins-tickets-290990338937)
+
 
 ## Past shows 2021
 
