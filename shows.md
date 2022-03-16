@@ -16,6 +16,7 @@ Sometimes I play with [Cedarstrip Rocketship](https://cedarstriprocketship.bandc
 - April 21: [Ron Hawkins & the Do Good Assassins @ Dakota Tavern](https://www.eventbrite.ca/e/ron-hawkins-and-the-do-good-assassins-tickets-290983327967)
 - April 23: Cedarstrip Rocketship @ Tranzac
 - April 28: [Ron Hawkins & the Do Good Assassins @ Dakota Tavern](https://www.eventbrite.ca/e/ron-hawkins-and-the-do-good-assassins-tickets-290990338937)
+- June 25: TBA
 - July 22-24: TBA @ [Hillside Festival](https://hillsidefestival.ca/)
 
 ## Past shows 2021
