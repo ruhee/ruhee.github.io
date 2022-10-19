@@ -70,6 +70,7 @@ I've also been seen with:
 
 #### Others
 
+- 2022: [Cedarstrip Rocketship - _Megaphones_ EP](https://cedarstriprocketship.bandcamp.com/album/megaphones-ep) (tenor sax, baritone sax)
 - 2020: [Ron Hawkins & The Do Good Assassins - _246_](https://ronhawkinsandthedogoodassassins.bandcamp.com/album/246) (tenor sax)
 - 2019: [Cedarstrip Rocketship - _Silver Bells 2019_](https://cedarstriprocketship.bandcamp.com/track/silver-bells-2019) (tenor sax, baritone sax, vocals)
 - 2019: [Sylvia's Taco Salad - _The Luncheon_](https://bowchicawowow.bandcamp.com/releases) (flute, clarinet, crowd noise)
