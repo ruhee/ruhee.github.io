@@ -7,7 +7,7 @@ I'm currently a recurring guest with [Lowest of the Low](http://lowestofthelow.c
 
 Sometimes I play with [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/) and [Shrinehouse](https://www.facebook.com/shrinehouseband/) (an Amy Winehouse tribute), and sometimes with other people too. 
 
-## 2022
+## 2023
 
 (shows on hold)
 
