@@ -7,15 +7,13 @@ permalink: /music/
 
 ### Current projects
 
-- [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute (tenor sax, flute, vocals)
 - [Lowest of the Low](http://lowestofthelow.com/) (recurring guest) (tenor & baritone sax)
-- [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/) (recurring guest) (tenor sax)
 
 ### Previous work in performance
 
 As a full member:
-
 - [Entire Cities](http://entirecities.bandcamp.com)
+- [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute
 - [Weak Hands](http://weakhandsband.com)
 - [Del Bel](http://www.delbelmusic.com)
 - [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger)
@@ -27,6 +25,7 @@ As a full member:
 I've also been seen with:
 
 - [Bry Webb](http://brywebb.com)
+- [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/)
 - [Stephen Stanley](https://stephenstanleyband.bandcamp.com/)
 - [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/releases)
 - [Robin Hatch](https://robinhatch.bandcamp.com/)
