@@ -49,7 +49,7 @@ I've also been seen with:
 
 #### Lowest of the Low
 
-- 2023: _Welcome to the Plunderdome (full-length coming soon)_ (tenor sax)
+- 2023: _Welcome to the Plunderdome (October 6)_ (tenor sax)
 - 2021: [_Taverns and Palaces (Live)_](https://lnk.to/TavernsAndPalaces) (tenor sax, baritone sax, percussion)
 - 2021: [_Live at Lee's_](https://recordstoredaycanada.ca/blog/article.php?id=100) (Record Store Day Canada single) (tenor sax)
 - 2019: [_One Great Tribute: A Love Letter to The Weakerthans_](https://theweakerthanstribute.bandcamp.com/track/pamphleteer) (tenor sax)
@@ -70,7 +70,8 @@ I've also been seen with:
 
 #### Others
 
-- 2022: _Untitled album TBA_
+- 2023: _Untitled EP TBA (tenor sax, vocals)_
+- 2022: _Untitled album TBA (tenor sax)_
 - 2022: [Cedarstrip Rocketship - _Megaphones_ EP](https://cedarstriprocketship.bandcamp.com/album/megaphones-ep) (tenor sax, baritone sax)
 - 2020: [Ron Hawkins & The Do Good Assassins - _246_](https://ronhawkinsandthedogoodassassins.bandcamp.com/album/246) (tenor sax)
 - 2019: [Cedarstrip Rocketship - _Silver Bells 2019_](https://cedarstriprocketship.bandcamp.com/track/silver-bells-2019) (tenor sax, baritone sax, vocals)
