@@ -52,7 +52,7 @@ I've also been seen with:
 - 2021: [_Taverns and Palaces (Live)_](https://lnk.to/TavernsAndPalaces) (tenor sax, baritone sax, percussion)
 - 2021: [_Live at Lee's_](https://recordstoredaycanada.ca/blog/article.php?id=100) (Record Store Day Canada single) (tenor sax)
 - 2019: [_One Great Tribute: A Love Letter to The Weakerthans_](https://theweakerthanstribute.bandcamp.com/track/pamphleteer) (tenor sax)
-- 2019: [_AGITPOP_](http://lowestofthelow.com/) (tenor sax, baritone sax, vocals)
+- 2019: [_AGITPOP_](https://open.spotify.com/album/4uAxsaUY36qU8AqQmO0LgK) (tenor sax, baritone sax, vocals)
 
 #### Entire Cities
 
@@ -72,18 +72,18 @@ I've also been seen with:
 - 2023: _Untitled EP TBA (tenor sax, vocals)_
 - 2022: _Untitled album TBA (tenor sax)_
 - 2022: [Cedarstrip Rocketship - _Megaphones_ EP](https://cedarstriprocketship.bandcamp.com/album/megaphones-ep) (tenor sax, baritone sax)
-- 2020: [Ron Hawkins & The Do Good Assassins - _246_](https://ronhawkinsandthedogoodassassins.bandcamp.com/album/246) (tenor sax)
+- 2020: [Ron Hawkins & The Do Good Assassins - _246_](https://open.spotify.com/album/0vVjD4yHvuSH7t159GkIpU) (tenor sax)
 - 2019: [Cedarstrip Rocketship - _Silver Bells 2019_](https://cedarstriprocketship.bandcamp.com/track/silver-bells-2019) (tenor sax, baritone sax, vocals)
 - 2019: [Sylvia's Taco Salad - _The Luncheon_](https://bowchicawowow.bandcamp.com/releases) (flute, clarinet, crowd noise)
 - 2018: [LeBarons - _Summer of Death_](https://lebarons.bandcamp.com/album/summer-of-death) (tenor sax)
 - 2018: [Goosebump - _Goosebump_](https://goosebumppleasence.bandcamp.com/) (tenor sax)
-- 2018: [Jordaan Mason - _Earth to Ursa Major_](https://jordaanmason.bandcamp.com/album/earth-to-ursa-major) (flute, tenor sax)
+- 2018: [Jordaan Mason - _Earth to Ursa Major_](https://open.spotify.com/album/4iCi9pax0nGzlJukbxTfxc) (flute, tenor sax)
 - 2018: [Bookchop - _Hello Darling_](https://bookchop.bandcamp.com/album/hello-darling) (tenor sax)
-- 2017: [Andrew James Barker - _Gunslinger_](https://andrewbarker.bandcamp.com/album/gunslinger) (flute)
+- 2017: [Andrew James Barker - _Gunslinger_](https://andrewjamesbarker.bandcamp.com/album/gunslinger) (flute)
 - 2017: [Towards the Forest - _Moon Summer_](https://towardstheforest.bandcamp.com/album/moon-summer) (tenor sax)
-- 2017: [Cedarstrip Rocketship - _Mountie Quarters_ EP](https://cedarstriprocketship.bandcamp.com/releases) (flute, baritone sax)
+- 2017: [Cedarstrip Rocketship - _Mountie Quarters_ EP](https://cedarstriprocketship.bandcamp.com/album/mountie-quarters-ep) (flute, baritone sax)
 - 2011: [The Natural Shocks - _Complete With Comfortable Lighting_](http://thenaturalshocks.bigcartel.com/) (vocals)
-- 2010: [Dr Ew - _Gadzooks_](https://doctor-ew.bandcamp.com/) (tenor sax)
+- 2010: [Dr Ew - _Gadzooks_](https://doctor-ew.bandcamp.com/album/gadzooks) (tenor sax)
 - 2009: [Gravity Wave - _Gambol_](https://gravity-wave.bandcamp.com/album/gambol) (tenor sax, flute)
 - 2009: The Dropjoys - _The Dropjoys_ (flute)
 - 2008: [Dwight Schenk - _Natural Disasters_](https://www.youtube.com/playlist?list=PLpMW5dPK8c5JqHsxJhwAazL-156qhPa78) (flute, vocals)
