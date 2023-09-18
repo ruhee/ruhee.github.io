@@ -69,7 +69,7 @@ I've also been seen with:
 
 #### Others
 
-- 2023: _Untitled EP TBA (tenor sax, vocals)_
+- 2023: _Survival Club - EP TBA (tenor sax, vocals)_
 - 2022: _Untitled album TBA (tenor sax)_
 - 2022: [Cedarstrip Rocketship - _Megaphones_ EP](https://cedarstriprocketship.bandcamp.com/album/megaphones-ep) (tenor sax, baritone sax)
 - 2020: [Ron Hawkins & The Do Good Assassins - _246_](https://open.spotify.com/album/0vVjD4yHvuSH7t159GkIpU) (tenor sax)
