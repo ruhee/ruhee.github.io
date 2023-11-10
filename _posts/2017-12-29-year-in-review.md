@@ -5,8 +5,6 @@ description:  "2017 was a big year."
 author:       "ruhee"
 ---
 
-![GELK x TUNS]({{ site.url }}/assets/gelk-tuns.jpg)
-
 I've never had a year like this one.
 
 This exercise feels a little narcissistic and maybe it is, but it's nice to look back on a year before embarking on a new one. I've never been very good at recognizing my own strengths and accomplishments, instead focusing most of my energy on what I didn't do or what wasn't perfect. Pam Selle does this great thing called [Bullets](https://thewebivore.com/2012-in-review-and-a-secret-to-chronicling-your-accomplishments/), where she keeps a list of her accomplishments throughout the year and looks back on them at the end; I started this late, so I'm reconstructing my list mostly from memory, but I intend to do this in 2018.
@@ -21,7 +19,7 @@ While 2017 was a great year for me personally, it was not a great year in genera
 
 Some other cool things that happened:
 - Celebrated my first anniversary at [TWG](http://twg.io)!
-- Played 38 shows with [Good Enough Live Karaoke](http://www.goodenoughlivekaraoke.com), on tenor sax, baritone sax, flute, vocals, keyboards (including 8 shows as the primary keyboard player), guitar, and very occasionally bass.
+- Played 38 shows with a live karaoke band, on tenor sax, baritone sax, flute, vocals, keyboards (including 8 shows as the primary keyboard player), guitar, and very occasionally bass.
 - Shipped code at work in Angular, Rails, React, and C#!
 - Decided to try guitar again; [bought a guitar](https://www.instagram.com/p/BSeys2zAyRq/); [started a band](http://twitter.com/weakhandsband); [booked a show](https://www.facebook.com/events/1935926319953402/) with that band.
 - Sold out my favourite venue, the Dakota Tavern, with [Shrinehouse](https://www.facebook.com/shrinehouseband/). Twice!
