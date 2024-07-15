@@ -69,8 +69,9 @@ I've also been seen with:
 
 #### Others
 
+- 2024: [Survival Club - Maybe We'll Learn Something From All of This (But Probably Not) (single)](https://survivalclub.bandcamp.com/track/maybe-well-learn-something-from-all-of-this-but-probably-not) (tenor sax, vocals)
+- 2024: [Survival Club - Feel Alive (single)](https://survivalclub.bandcamp.com/track/feel-alive) (tenor sax, vocals)
 - 2024: [Arch Rockfeller - _Old Too Soon​.​.​. Wise Too Late_](https://archrockfeller.bandcamp.com/album/old-too-soon-wise-too-late) (tenor sax)
-- 2023: _Survival Club - EP TBA (tenor sax, vocals)_
 - 2022: [Cedarstrip Rocketship - _Megaphones_ EP](https://cedarstriprocketship.bandcamp.com/album/megaphones-ep) (tenor sax, baritone sax)
 - 2020: [Ron Hawkins & The Do Good Assassins - _246_](https://open.spotify.com/album/0vVjD4yHvuSH7t159GkIpU) (tenor sax)
 - 2019: [Cedarstrip Rocketship - _Silver Bells 2019_](https://cedarstriprocketship.bandcamp.com/track/silver-bells-2019) (tenor sax, baritone sax, vocals)
