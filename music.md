@@ -48,6 +48,7 @@ I've also been seen with:
 
 #### Lowest of the Low
 
+- 2025: Full-length TBA (tenor sax)
 - 2023: [_Welcome to the Plunderdome_](https://lowestofthelow.com/site/new-album-welcome-to-the-plunderdome/) (tenor sax)
 - 2021: [_Taverns and Palaces (Live)_](https://lnk.to/TavernsAndPalaces) (tenor sax, baritone sax, percussion)
 - 2021: [_Live at Lee's_](https://recordstoredaycanada.ca/blog/article.php?id=100) (Record Store Day Canada single) (tenor sax)
