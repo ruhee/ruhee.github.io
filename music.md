@@ -7,6 +7,7 @@ permalink: /music/
 
 ### Current projects
 
+- [Survival Club](https://survivalclub.bandcamp.com/) (keys, tenor sax, vocals)
 - [Lowest of the Low](http://lowestofthelow.com/) (recurring guest) (tenor & baritone sax)
 
 ### Previous work in performance
