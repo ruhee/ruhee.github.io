@@ -28,8 +28,6 @@ nav:
     href:           "/posts"
   - name:           "Music"
     href:           "/music"
-  - name:           "Shows"
-    href:           "/shows"
 
 # Sass
 sass:
