@@ -14,13 +14,13 @@ permalink: /music/
 
 As a full member:
 - [Entire Cities](http://entirecities.bandcamp.com)
-- [Shrinehouse](https://www.facebook.com/shrinehouseband), an Amy Winehouse tribute
-- [Weak Hands](http://weakhandsband.com)
-- [Del Bel](http://www.delbelmusic.com)
+- [Shrinehouse](https://www.youtube.com/channel/UC2rjaATpVZ1zL08u4n5Z_cg), an Amy Winehouse tribute
+- [Weak Hands](https://www.instagram.com/weakhands/)
+- [Del Bel](https://delbel.bandcamp.com/album/del-bel)
 - [Andrew James Barker's _Gunslinger_ band](https://andrewbarker.bandcamp.com/album/gunslinger)
 - [Clarinet Panic](https://www.facebook.com/Clarinet-Panic-Redux-195961967093990/)
 - [Henri Fabergé and The Adorables](https://en.wikipedia.org/wiki/Henri_Faberg%C3%A9_and_the_Adorables)
-- The Cheap Speakers
+- [The Cheap Speakers](https://www.facebook.com/thecheapspeakers/)
 
 I've also been seen with:
 
