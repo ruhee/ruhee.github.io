@@ -11,7 +11,7 @@ Minor background: Where I work we use [Tuple](https://tuple.app/) for pairing. I
 
 My colleague _called_ me, on Tuple, unprompted.
 
-My first reaction was "Oh god, what the hell did I break in prod?" Nobody calls me out of the blue like this, as a not-exceptionally-senior IC in 2025. I don't have a work phone. I work full-time remote except when I go into the office and then, often, have to take Google Meet calls on a couch instead of in my condo. I do attend meetings and do a _lot_ of pairing, but outside of that, I can be pretty async.
+My first reaction was "Oh god, what the hell did I break in prod?" Nobody calls me out of the blue like this, as a not-exceptionally-senior IC in 2025. I don't have a work phone. I work full-time remote except when I occasionally decide to go into the office and then, often, have to take Google Meet calls on a couch instead of in my condo (my team is fairly distributed). I do attend meetings and do a _lot_ of pairing, but outside of that, I can be pretty async.
 
 So I answered the call. My colleague said something like, hey, I was reviewing your PR and thought it would be easier to just talk about it. Then we talked about it for quite some time, decided on some things, and hung up.
 
