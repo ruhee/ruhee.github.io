@@ -7,7 +7,7 @@ permalink: /music/
 
 ### Current projects
 
-- [Survival Club](https://survivalclub.bandcamp.com/) (keys, tenor sax, vocals)
+- [Survival Club](https://survivalclubtheband.com/) (keys, tenor sax, vocals)
 - [Lowest of the Low](http://lowestofthelow.com/) (recurring guest) (tenor & baritone sax)
 
 ### Previous work in performance
@@ -48,7 +48,7 @@ I've also been seen with:
 
 #### Lowest of the Low
 
-- 2025: _Over Years and Overnight_ (May 2) (tenor sax)
+- 2025: [_Over Years and Overnight_](https://open.spotify.com/album/5Bqf6Y9Xbf1mmJHZgRxLd4?si=o0NKLll-ROKccfPnHOZpig) (tenor sax)
 - 2023: [_Welcome to the Plunderdome_](https://lowestofthelow.com/site/new-album-welcome-to-the-plunderdome/) (tenor sax)
 - 2021: [_Taverns and Palaces (Live)_](https://lnk.to/TavernsAndPalaces) (tenor sax, baritone sax, percussion)
 - 2021: [_Live at Lee's_](https://recordstoredaycanada.ca/blog/article.php?id=100) (Record Store Day Canada single) (tenor sax)
