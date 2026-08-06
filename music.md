@@ -27,6 +27,7 @@ I've also been seen with:
 - [Bry Webb](http://brywebb.com)
 - [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/)
 - [Stephen Stanley](https://stephenstanleyband.bandcamp.com/)
+- [Friendly Rich](https://friendlyrich.com/) & the Lollipop People
 - [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/releases)
 - [Robin Hatch](https://robinhatch.bandcamp.com/)
 - [The Weather Station](http://theweatherstation.bandcamp.com)
