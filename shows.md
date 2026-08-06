@@ -3,6 +3,8 @@ title: Shows
 permalink: /shows/
 ---
 
+- August 30: Survival Club @ The Flat Top (Toronto, ON)
+
 _In support of The Honest Heart Collective:_
 - September 24: Survival Club @ Townehouse Tavern (Sudbury, ON)
 - September 25: Survival Club @ 27 Club (Ottawa, ON)
