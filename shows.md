@@ -3,7 +3,7 @@ title: Shows
 permalink: /shows/
 ---
 
-- August 30: Survival Club @ The Flat Top (Toronto, ON)
+
 
 _In support of The Honest Heart Collective:_
 - September 24: Survival Club @ Townehouse Tavern (Sudbury, ON)
@@ -15,6 +15,7 @@ _In support of The Honest Heart Collective:_
 
 ## Past shows 2026
 
+- August 30 @ The Flat Top (w/ Survival Club)
 - July 11 @ The Rex Hotel (w/ Friendly Rich & the Lollipop People)
 - June 20 @ No No Room (w/ Survival Club)
 - June 19 @ Doors Pub (Hamilton) (w/ Survival Club)
