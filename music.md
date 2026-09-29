@@ -49,10 +49,11 @@ I've also been seen with:
 
 #### Survival Club
 - TBA: Debut LP :)
-- 2026: ["Happily Ever After (feat. The Honest Heart Collective)"](https://survivalclub.bandcamp.com/track/happily-ever-after-feat-the-honest-heart-collective) (tenor sax, keyboards, vocals)
-- 2024: ["Maybe We'll Learn Something From All of This (But Probably Not)"](https://survivalclub.bandcamp.com/track/maybe-well-learn-something-from-all-of-this-but-probably-not) (tenor sax, vocals)
-- 2024: ["Feel Alive"](https://survivalclub.bandcamp.com/track/feel-alive) (tenor sax, vocals)
-- 2024: ["The Beauty in Everything"](https://survivalclub.bandcamp.com/track/the-beauty-in-everything) (tenor sax, vocals)
+- Singles (tenor sax, vocals): 
+  - 2026: ["Happily Ever After (feat. The Honest Heart Collective)"](https://survivalclub.bandcamp.com/track/happily-ever-after-feat-the-honest-heart-collective) (+ keyboards)
+  - 2024: ["Maybe We'll Learn Something From All of This (But Probably Not)"](https://survivalclub.bandcamp.com/track/maybe-well-learn-something-from-all-of-this-but-probably-not)
+  - 2024: ["Feel Alive"](https://survivalclub.bandcamp.com/track/feel-alive)
+  - 2024: ["The Beauty in Everything"](https://survivalclub.bandcamp.com/track/the-beauty-in-everything)
 
 #### Lowest of the Low
 
