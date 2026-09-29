@@ -47,6 +47,13 @@ I've also been seen with:
 
 ### Recordings
 
+#### Survival Club
+- TBA: Debut LP :)
+- 2026: ["Happily Ever After (feat. The Honest Heart Collective)"](https://survivalclub.bandcamp.com/track/happily-ever-after-feat-the-honest-heart-collective) (tenor sax, keyboards, vocals)
+- 2024: ["Maybe We'll Learn Something From All of This (But Probably Not)"](https://survivalclub.bandcamp.com/track/maybe-well-learn-something-from-all-of-this-but-probably-not) (tenor sax, vocals)
+- 2024: ["Feel Alive"](https://survivalclub.bandcamp.com/track/feel-alive) (tenor sax, vocals)
+- 2024: ["The Beauty in Everything"](https://survivalclub.bandcamp.com/track/the-beauty-in-everything) (tenor sax, vocals)
+
 #### Lowest of the Low
 
 - 2025: [_Over Years and Overnight_](https://open.spotify.com/album/5Bqf6Y9Xbf1mmJHZgRxLd4?si=o0NKLll-ROKccfPnHOZpig) (tenor sax)
@@ -70,11 +77,7 @@ I've also been seen with:
 - 2011: [_Oneiric_](https://delbel.bandcamp.com/album/oneiric) (baritone sax)
 
 #### Others
-
-- 2024: Singles with Survival Club (tenor sax, vocals):
-    - [Maybe We'll Learn Something From All of This (But Probably Not)](https://survivalclub.bandcamp.com/track/maybe-well-learn-something-from-all-of-this-but-probably-not)
-    - [Feel Alive](https://survivalclub.bandcamp.com/track/feel-alive)
-    - [The Beauty in Everything](https://survivalclub.bandcamp.com/track/the-beauty-in-everything)
+- TBA: [Skye Wallace](https://www.skyewallace.com/) LP
 - 2024: [Arch Rockfeller - _Old Too Soon​.​.​. Wise Too Late_](https://archrockfeller.bandcamp.com/album/old-too-soon-wise-too-late) (tenor sax)
 - 2022: [Cedarstrip Rocketship - _Megaphones_ EP](https://cedarstriprocketship.bandcamp.com/album/megaphones-ep) (tenor sax, baritone sax)
 - 2020: [Ron Hawkins & The Do Good Assassins - _246_](https://open.spotify.com/album/0vVjD4yHvuSH7t159GkIpU) (tenor sax)
