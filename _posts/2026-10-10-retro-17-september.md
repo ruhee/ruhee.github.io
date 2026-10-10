@@ -1,7 +1,7 @@
 ---
 title:        "Retro #17: September"
 # jekyll-seo-tag
-description:  ""
+description:  "Made some things, went on tour"
 author:       "ruhee"
 ---
 If I've known you awhile you may remember my silly little baseball website from 2015, the [David Price Nickname Generator](https://nationalpost.com/sports/baseball/mlb/toronto-blue-jays-fan-created-a-david-price-nickname-generator-and-the-ace-thought-it-was-pretty-funny). It happened at a good time for Jays content, when they were in the division race and gunning for their first playoff appearance in an eternity, and it's had incredible staying power—I got a job partially off the back of that website, and many people I've met years later have been surprised to learn that that was me (including a new colleague I met only a few months ago!). 
