@@ -3,6 +3,8 @@ title:        "2026: It wasn’t supposed to end like this"
 # jekyll-seo-tag
 description:  "Memories (painful), memories (beautiful), and things we wish had been different"
 author:       "ruhee"
+image:
+    path: /assets/posts/scherzer-frank-gunn.jpg
 ---
 
 ![Max Scherzer in a Jays uniform, waving - photo by Frank Gunn, Canadian Press]({{ site.url }}/assets/posts/scherzer-frank-gunn.jpg "Max Scherzer in a Jays uniform, waving - photo by Frank Gunn, Canadian Press")
