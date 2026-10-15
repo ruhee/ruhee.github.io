@@ -26,6 +26,7 @@ I've also been seen with:
 
 - [Bry Webb](http://brywebb.com)
 - [Ron Hawkins & The Do Good Assassins](https://www.ronhawkins.com/music/type/do-good-assassins/)
+- [Skye Wallace](https://www.skyewallace.com/)
 - [Stephen Stanley](https://stephenstanleyband.bandcamp.com/)
 - [Friendly Rich](https://friendlyrich.com/) & the Lollipop People
 - [Cedarstrip Rocketship](https://cedarstriprocketship.bandcamp.com/releases)
