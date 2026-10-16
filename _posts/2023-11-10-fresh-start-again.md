@@ -1,5 +1,6 @@
 ---
 title:        "Can you have two fresh starts on one blog?"
+category:     "personal"
 # jekyll-seo-tag
 description:  "After another round of enshittification, here we are again."
 author:       "ruhee"

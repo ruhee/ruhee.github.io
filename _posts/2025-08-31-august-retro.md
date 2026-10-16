@@ -1,5 +1,6 @@
 ---
 title:        "August retro"
+category:     "retro"
 # jekyll-seo-tag
 description:  "Looking backward, publicly"
 author:       "ruhee"

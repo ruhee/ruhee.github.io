@@ -1,5 +1,6 @@
 ---
 title:        "Retro #16: August"
+category:     "retro"
 # jekyll-seo-tag
 description:  "Thought about clothes, made some music"
 author:       "ruhee"

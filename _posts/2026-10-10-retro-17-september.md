@@ -1,5 +1,6 @@
 ---
 title:        "Retro #17: September"
+category:     "retro"
 # jekyll-seo-tag
 description:  "Made some things, went on tour"
 author:       "ruhee"

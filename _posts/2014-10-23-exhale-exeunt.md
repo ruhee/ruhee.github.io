@@ -1,5 +1,6 @@
 ---
 title:        "2014: Exhale. Exeunt."
+category:     "baseball"
 # jekyll-seo-tag
 description:  "The year it almost could have been"
 author:       "ruhee"

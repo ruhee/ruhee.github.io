@@ -1,5 +1,6 @@
 ---
 title:        "Fanfare for these uncommon men"
+category:     "baseball"
 # jekyll-seo-tag
 description:  "It's a game of inches, and of lifetimes"
 author:       "ruhee"

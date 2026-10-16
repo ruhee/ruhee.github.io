@@ -1,5 +1,6 @@
 ---
 title:        "Retro #4: Re-learning to think longform thoughts"
+category:     "retro"
 # jekyll-seo-tag
 description:  "Plus: burnout, good writing, and baseball again"
 author:       "ruhee"

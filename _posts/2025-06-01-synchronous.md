@@ -1,5 +1,6 @@
 ---
 title:        "Synchronous"
+category:     "work"
 # jekyll-seo-tag
 description:  "Area millennial discovers telephone"
 author:       "ruhee"

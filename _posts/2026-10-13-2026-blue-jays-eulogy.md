@@ -1,5 +1,6 @@
 ---
 title:        "2026: It wasn’t supposed to end like this"
+category:     "baseball"
 # jekyll-seo-tag
 description:  "Memories (painful), memories (beautiful), and things we wish had been different"
 author:       "ruhee"

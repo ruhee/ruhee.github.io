@@ -1,5 +1,6 @@
 ---
 title:        "A year in review"
+category:     "personal"
 # jekyll-seo-tag
 description:  "2017 was a big year."
 author:       "ruhee"

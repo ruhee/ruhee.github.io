@@ -1,5 +1,6 @@
 ---
 title:        "We were there"
+category:     "baseball"
 # jekyll-seo-tag
 description:  "The greatest game of my baseball life"
 author:       "ruhee"

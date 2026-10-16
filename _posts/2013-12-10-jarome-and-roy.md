@@ -1,5 +1,6 @@
 ---
 title:        "Jarome & Roy"
+category:     "baseball"
 # jekyll-seo-tag
 description:  "Two giants"
 author:       "ruhee"

@@ -1,5 +1,6 @@
 ---
 title:        "A fresh start"
+category:     "personal"
 # jekyll-seo-tag
 description:  "The zillionth person in the world learns to play guitar; is confused."
 author:       "ruhee"

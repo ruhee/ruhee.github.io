@@ -1,5 +1,6 @@
 ---
 title:        "Retro #10: February"
+category:     "retro"
 # jekyll-seo-tag
 description:  "We're all behind on everything"
 author:       "ruhee"

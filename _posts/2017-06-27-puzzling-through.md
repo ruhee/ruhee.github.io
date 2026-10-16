@@ -1,5 +1,6 @@
 ---
 title:        "Puzzling through"
+category:     "music"
 # jekyll-seo-tag
 description:  "More scattered thoughts on new instruments."
 author:       "ruhee"

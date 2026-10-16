@@ -1,5 +1,6 @@
 ---
 title:        "Retro #9: January"
+category:     "retro"
 # jekyll-seo-tag
 description:  "Loss, gains, gentleness"
 author:       "ruhee"
